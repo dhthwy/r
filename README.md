@@ -15,3 +15,11 @@ https://www.goodreads.com/quotes/9504189-for-a-while-every-smart-and-shy-eccentr
 wake up song 2. 10 years deceased, nearing anniversary.
 
 https://www.youtube.com/watch?v=r3Pr1_v7hsw
+
+https://www.goodreads.com/quotes/12263857-if-i-was-rude-it-was-to-make-someone-else
+
+https://www.youtube.com/watch?v=_HLol9InMlc
+
+https://www.youtube.com/watch?v=OuALwLhUmKY
+
+https://www.youtube.com/watch?v=lU9p1WRfA9w
