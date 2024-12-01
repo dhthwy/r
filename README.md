@@ -19,3 +19,5 @@ Thanks for your honesty. I already knew you don't care.
 
 3. Look at what they do not what they say. What do their actions say? What is the history of their actions?
 "
+
+Best to enjoy the holidays with the people you care about. The ones you spend time with. The ones you chose to simply be tangible with. Anything else just doesn't feel right.
