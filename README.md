@@ -15,7 +15,7 @@ Thanks for your honesty. I already knew you don't care.
 
 1. We don't play games with people we care about.
 
-2. We don't subtle with their life.
+2. We don't subtle with their life (not when it comes to things that harm them in any form).
 
 3. Look at what they do not what they say. What do their actions say? What is the history of their actions?
 "
