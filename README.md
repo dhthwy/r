@@ -8,3 +8,5 @@ https://www.goodreads.com/quotes/12422715-which-way-is-up-which-way-is-down-wher
 https://www.goodreads.com/quotes/128348-sincerity---if-you-can-fake-that-you-ve-got-it
 
 https://www.goodreads.com/quotes/235335-studies-show-intelligent-girls-are-more-depressed-because-they-know
+
+https://www.youtube.com/watch?v=WM8bTdBs-cw
