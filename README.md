@@ -14,3 +14,5 @@ https://www.youtube.com/watch?v=WM8bTdBs-cw
 https://www.youtube.com/watch?v=Ej0HaDLaoRk
 
 https://www.goodreads.com/quotes/12281494-nobody-heard-him-the-dead-man-but-still-he-lay
+
+https://www.goodreads.com/quotes/12431473-how-is-one-expected-to-move-forward-when-they-are
