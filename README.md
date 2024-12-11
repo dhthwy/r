@@ -12,3 +12,5 @@ https://www.goodreads.com/quotes/235335-studies-show-intelligent-girls-are-more-
 https://www.youtube.com/watch?v=WM8bTdBs-cw
 
 https://www.youtube.com/watch?v=Ej0HaDLaoRk
+
+https://www.goodreads.com/quotes/12431322-they-do-as-they-do-the-doomed-do-as-the
