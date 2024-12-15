@@ -20,3 +20,5 @@ https://www.goodreads.com/quotes/12431473-how-is-one-expected-to-move-forward-wh
 https://www.goodreads.com/quotes/12432680-there-were-a-few-ways-to-reach-that-point-all
 
 https://www.youtube.com/watch?v=nxMMElT61A8
+
+https://youtu.be/eP6UvNgbqIA?t=22
