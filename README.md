@@ -13,3 +13,18 @@ https://www.goodreads.com/quotes/12467381-i-m-happy-you-have-your-husband-congra
 https://www.vibe.com/lists/2025-grammys-nominations-hip-hop-rb-snubs-highlights-list/whats-missing-from-best-rap-album/
 
 Shaboozey. Some of them should've been recognized for their work, but it is how it is, looks like they got Shaboozeyed.
+
+https://www.youtube.com/watch?v=2AQWCSmsb1E
+
+Gay bomb? I don't know. Sounds silly. They tried to flip the men on eachother like magnets. I read the report cost several grand in direct expenses and at least $100k indirectly and probably much more over time. What a waste.
+Interesting terms to describe a set of bidirectional hostile males can include:
+
+```
+"Reciprocal Antagonistic Affection Syndrome" (RAAS)
+
+"Mutual Hostility-Induced Bonding Effect" (MHIBE)
+
+"Antipathy Attraction Paradox" (AAP)
+
+"Snarky Attachment Theory"
+```
