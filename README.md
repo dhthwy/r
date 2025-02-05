@@ -71,3 +71,59 @@ One deep betrayal after another destroyed me, because every part of me believed 
 And I know you don't care. Or you would've fixed that long ago.
 "
 ```
+
+```
+"There is nothing more awful, insulting, and depressing than banishment."
+— Leo Tolstoy
+
+"The feeling of being unwanted is the most terrible poverty."
+— Mother Teresa
+
+"For they, for all smooth lips can say,
+Have given their hearts up to the play."
+
+"Looking up at the stars, I know quite well
+That, for all they care, I can go to hell."
+
+"The smile on your mouth was the deadest thing
+Alive enough to have strength to die."
+
+"I am—yet what I am none cares or knows;
+My friends forsake me like a memory lost."
+
+"Was it my face that thou didst mock?
+Then change thy countenance as I change my cloak.
+Was it my tongue that thou didst scorn?
+Then silence be to thee my only talk."
+
+"No worst, there is none. Pitched past pitch of grief,
+More pangs will, schooled at forepangs, wilder wring."
+
+"Make me a mandrake, so I may groan here,
+Or a stone fountain weeping out my year."
+
+"He laughed at me when I spoke of my pain,
+Said I was too weak to survive the rain."
+
+"They love you, but not enough
+To celebrate your victories.
+They love you, but not enough
+To listen when you speak."
+
+"Yet now despair itself is mild,
+Even as the winds and waters are;
+I could lie down like a tired child,
+And weep away the life of care."
+
+"They jeered the old man’s broken prayer
+With laughter low and sweet."
+
+"When in disgrace with fortune and men’s eyes,
+I all alone beweep my outcast state."
+
+```
+
+https://genius.com/Metallica-the-unforgiven-lyrics
+
+https://www.goodreads.com/quotes/12543921-i-will-in-few-words-you-are-cold-because-you
+
