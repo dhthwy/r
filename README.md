@@ -49,6 +49,25 @@ But they all notice your mistakes."
 "No one ever gets tired of loving. They get tired of waiting, assuming, hearing lies, and hurting."
 
 "Not all wounds are visible. Some people are scarred in places eyes will never see."
+```
 
+```
+"From the beginning you made me feel unwelcome.
 
+Etched it into my soul.
+
+Then you cut me down and tore me to pieces.
+
+After that, you chose not to do a little to assist me.
+
+I told you what I needed, it goes in one ear and out the other.
+
+Now I know better. It's not because you couldn't. It's because you didn't want to.
+
+Forgiveness isn't it. It's that lied and you never changed.
+
+One deep betrayal after another destroyed me, because every part of me believed in you.
+
+And I know you don't care. Or you would've fixed that long ago.
+"
 ```
