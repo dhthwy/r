@@ -11,3 +11,17 @@ https://www.youtube.com/watch?v=Ckom3gf57Yw
 https://www.youtube.com/watch?v=fbGkxcY7YFU
 
 https://www.youtube.com/watch?v=e7Ae_Y2tos4
+
+```
+"The greatest sin is to do nothing because you can only do a little."
+— Edmund Burke
+
+"The world is changed by your example, not by your opinion."
+— Paulo Coelho
+
+"The price of inaction is far greater than the cost of making a mistake."
+— Meister Eckhart
+
+"If you are neutral in situations of injustice, you have chosen the side of the oppressor."
+— Desmond Tutu
+```
