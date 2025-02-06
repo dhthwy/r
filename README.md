@@ -127,3 +127,26 @@ https://genius.com/Metallica-the-unforgiven-lyrics
 
 https://www.goodreads.com/quotes/12543921-i-will-in-few-words-you-are-cold-because-you
 
+```
+I read "No." 'Can't." That's why I didn't.
+
+It's so convenient for you to leave that part out.
+
+Until I later read otherwise, and did, but apparently there was something better to do.
+It became obvious then that there was something better to do.
+
+Thought maybe you cared a bit and were taking a corrective action,
+But I was wrong again. You didn't give a shit about me.
+Instead I was excluded from all platforms because there was something better to do.
+
+Why the fuck should I care about anything I say, when your very own actions
+speak loud and clear that you have absolutely zero regard for my welfare?
+
+Nothing that comes out of your mouth aligns with anything you do.
+
+You set out to fuck me up in every way imaginable. Cause why?
+Why the fuck would you do this to someone who hasn't done any harm to you?
+
+What do I have to lose, really? I lost so much I can never get back.
+The door swings both ways.
+```
