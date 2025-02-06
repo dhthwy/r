@@ -150,3 +150,17 @@ Why the fuck would you do this to someone who hasn't done any harm to you?
 What do I have to lose, really? I lost so much I can never get back.
 The door swings both ways.
 ```
+
+```
+"You fit into me
+like a hook into an eye
+a fish hook
+an open eye."
+
+"O didn't you know I'd been ruined?" said she.
+
+"There is a smile of love,
+And there is a smile of deceit,
+And there is a smile of smiles
+In which these two smiles meet."
+```
