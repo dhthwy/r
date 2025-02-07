@@ -194,6 +194,10 @@ In which these two smiles meet."
 ```
 
 ```
-You know what's really sad? Massa is more a friend to me than you are.
+"You know what's really sad? Massa is more a friend to me than you are.
 Now that's sayin suttin!
+
+Got some juicy juice and I am thorough as fuck yo!"
+"
+
 ```
