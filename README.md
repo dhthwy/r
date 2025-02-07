@@ -215,3 +215,30 @@ until Mr. Benefit of Doubt drew his final breath."
 
 "You may have stripped me of privacy and stolen the self from me, but on this path, my words shall owe nothing."
 ```
+
+```
+I learned, in shadows, how to wear hate
+like armor forged from iron rage.
+It clung to me like a second skin,
+a shield against the silent storm.
+
+When kindness betrayed, and trust was dust,
+I found that fury was my strength,
+a fire born of cold betrayal,
+the ember that refused to die.
+
+Each wound became a lesson learned,
+each scar, a chapter in my war,
+for when the world took what it could,
+I learned to fight with what it left.
+
+I held my hatred like a blade,
+sharp and steady in the dark,
+and when they asked what drove me forth,
+I said, "Survival knows no heart."
+
+So here I stand, no longer meek,
+a soul reborn in flames of spite,
+for to endure the crushing weight,
+sometimes you must become the night.
+```
