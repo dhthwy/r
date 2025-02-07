@@ -242,3 +242,38 @@ a soul reborn in flames of spite,
 for to endure the crushing weight,
 sometimes you must become the night.
 ```
+
+https://www.humanesociety.org/dogfighting
+
+```
+"I don't think I'll ever know
+what it feels like to be held in warmth,
+or to hear my name in kindness
+without the weight of distance in their eyes.
+
+I’ve walked through rooms where voices sang,
+but none ever reached me,
+a ghost amid their laughter,
+hidden in the shadow of a fleeting touch.
+
+Friendship is a word I hear,
+but it falls like stones into the sea,
+the ripples never touching my skin,
+just a distant echo of what could be.
+
+I gave my hand, they held it tight,
+but only when the daylight faded,
+and the promises felt like echoes
+of things they meant, but never truly said.
+
+I’ve learned to live in spaces unseen,
+to smile and stand, though none would know,
+that behind the mask, the heart lies bare,
+always reaching, yet always alone.
+
+Now that I'm old,
+I don’t think I’ll ever know
+what it’s like to be known by love,
+not even by a friend.
+And that’s the silence I carry."
+```
