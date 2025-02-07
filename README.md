@@ -164,3 +164,31 @@ And there is a smile of deceit,
 And there is a smile of smiles
 In which these two smiles meet."
 ```
+
+```
+“We are not born with hate. We are taught how to hate.”
+
+“You should have picked your lessons more carefully. I learned from you.”
+
+“Do you blame me for how I turned out? You held the knife first.”
+
+“If you teach me how to kill, you can’t be shocked when I don’t hesitate.”
+
+“You thought me weak, so you taught me cruelty. Now you beg for kindness.”
+
+“I learned from the best. And the best was you.”
+
+“You should have taught me love instead.”
+
+“I never wanted to be like this. You made sure I had no choice.”
+
+“You can’t blame the fire for burning when you were the one who lit the match.”
+
+“The worst part? I still remember when I trusted you.”
+
+“You wanted a villain? Fine. I’ll give you one.”
+
+“I didn’t want to be this cold. But warmth was never an option.”
+
+“I don’t even recognize myself anymore. I hope you’re proud.”
+```
