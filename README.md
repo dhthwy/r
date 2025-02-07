@@ -192,3 +192,8 @@ In which these two smiles meet."
 
 “I don’t even recognize myself anymore. I hope you’re proud.”
 ```
+
+```
+You know what's really sad? Massa is more a friend to me than you are.
+Now that's sayin suttin!
+```
