@@ -203,3 +203,15 @@ Got some juicy juice and I am thorough as fuck yo!"
 ```
 
 https://www.youtube.com/watch?v=GRblYfKwa88
+
+```
+“I didn’t lose a friend. I just realized they are my enemy.”
+
+"False friends are like shadows: always near you at your brightest, but nowhere to be seen at your darkest."
+ 
+"You, who reigned with ruthless dominion,
+used and abused trust,
+until Mr. Benefit of Doubt drew his final breath."
+
+"You may have stripped me of privacy and stolen the self from me, but on this path, my words shall owe nothing."
+```
