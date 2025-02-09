@@ -73,3 +73,12 @@ but I cannot walk where fingers weave.
 A space for pairs,
 while I remain on the outer brink.
 ```
+
+https://www.livescience.com/space/cosmology/are-we-wrong-about-the-age-of-the-universe-the-james-webb-telescope-is-raising-big-questions
+
+```
+"Now estimated to be much older, possibly 26 billion years old, thanks to the JWT.
+Which also means the universe is much larger than previously thought.
+Yeah there is  life out there, somewhere, far far away."
+```
+
