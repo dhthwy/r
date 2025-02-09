@@ -45,3 +45,31 @@ And that’s the silence I carry."
 
 "Not so much jealous of massa. No one likes being pinned an outcast forever."
 ```
+
+```
+"You have your walls, your quiet doors,
+whispers kept and secrets stored.
+But I stand bare, a window wide,
+no lock to turn, no place to hide.
+
+You walk in silence, safe, unseen,
+while I am laid in ruthless gleam.
+They watch, they weigh, they claim my name—
+yet yours drifts free, untouched by flame.
+
+You should know what it means to choose,
+to close a door, to never lose.
+But choice is yours, not mine to make—
+for all I am is theirs to take."
+```
+
+```
+The Earth's axis tilts at approximately 23.5 degrees, influencing seasons and life itself.
+```
+
+```
+I thought, perhaps, of a place,
+but I cannot walk where fingers weave.
+A space for pairs,
+while I remain on the outer brink.
+```
