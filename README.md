@@ -113,3 +113,19 @@ https://www.youtube.com/shorts/kABiKZfDEVI
 
 https://youtu.be/UVKsd8z6scw?t=173
 ``` if they were a white male, this would resemble ```
+
+```
+"Colors pass like fleeting light,
+Red, blue, yellow, or white mix—none settle right.
+No one shade is mine to claim,
+They shift, they blur, they feel the same."
+
+"If shopping excites you, the grand malls call your name,
+If it does not, the quiet shops play a simpler game.
+One stands tall, the other, humbler still,
+Each a world, both sincere and filled."
+
+"The gates of hell are open night and day; smooth the descent and easy is the way."
+```
+
+
