@@ -110,3 +110,6 @@ https://owlcation.com/humanities/True-Haiku-Myth-5-7-5-how-to-write-haiku
 https://www.hairlosstalk.com/interact/threads/has-anyone-used-leg-or-butt-hair-for-a-hair-transplant.108359/
 
 https://www.youtube.com/shorts/kABiKZfDEVI
+
+https://youtu.be/UVKsd8z6scw?t=173
+``` if they were a white male, this would resemble ```
