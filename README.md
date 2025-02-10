@@ -106,3 +106,5 @@ https://www.goodreads.com/book/show/3476198-thinking-inside-the-box
 https://www.crowl.org/lawrence/time/days.html
 
 https://owlcation.com/humanities/True-Haiku-Myth-5-7-5-how-to-write-haiku
+
+https://www.hairlosstalk.com/interact/threads/has-anyone-used-leg-or-butt-hair-for-a-hair-transplant.108359/
