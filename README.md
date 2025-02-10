@@ -128,4 +128,12 @@ Each a world, both sincere and filled."
 "The gates of hell are open night and day; smooth the descent and easy is the way."
 ```
 
+https://www.buzzfeed.com/rajpunjabi/you-are-probably-wiping-your-butt-wrong
+
+https://www.buzzfeed.com/taylor_steele/products-to-help-you-handle-things-dont-want-deal-with-an
+
+https://www.msn.com/en-in/sports/nfl/why-donald-trump-left-super-bowl-game-midway-revealed/ar-AA1yLXrW
+
+![hair](https://github.com/user-attachments/assets/9c3a1b43-2369-45ee-91af-f359247607b7)
+
 
