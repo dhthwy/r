@@ -102,3 +102,7 @@ Yeah there is  life out there, somewhere, far far away."
 https://leaders.com/articles/business/small-business-vs-big-business/
 
 https://www.goodreads.com/book/show/3476198-thinking-inside-the-box
+
+https://www.crowl.org/lawrence/time/days.html
+
+https://owlcation.com/humanities/True-Haiku-Myth-5-7-5-how-to-write-haiku
