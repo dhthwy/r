@@ -99,4 +99,4 @@ Yeah there is  life out there, somewhere, far far away."
 
 ![bigsmallbiz](https://github.com/user-attachments/assets/5d6c560a-5812-4681-bbac-e0558f3aed4a)
 
-
+https://leaders.com/articles/business/small-business-vs-big-business/
