@@ -82,3 +82,16 @@ Which also means the universe is much larger than previously thought.
 Yeah there is  life out there, somewhere, far far away."
 ```
 
+```
+"Which world do you step—the one that stretches beyond or the one that keeps you near?"
+
+"Are you a hawk that hunts the horizon or a dove that lingers in peace?"
+
+"Which horse of thought leads you forward?"
+
+"The first light favors the swift."
+
+"What’s your go-to color?"
+
+"I'll take r for random."
+```
