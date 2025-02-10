@@ -95,3 +95,7 @@ Yeah there is  life out there, somewhere, far far away."
 
 "I'll take r for random."
 ```
+![hell](https://github.com/user-attachments/assets/cc02a300-911d-472e-8ba3-497aa00dc270)
+
+
+
