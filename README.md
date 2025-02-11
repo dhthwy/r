@@ -156,4 +156,14 @@ https://www.goodreads.com/en/book/show/43877477-the-penguin-book-of-migration-li
 
 https://www.goodreads.com/book/show/36369210-crossroads-through-time
 
+https://heymarvin.com/resources/usability-testing-methods/
+
+https://marketingexperiments.com/
+```
+I used to love doing marketing experiments back in the day.
+You need a lot of traffic though.
+Learned a lot from Flint.
+```
+
+
 
