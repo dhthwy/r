@@ -147,3 +147,13 @@ https://www.goodreads.com/book/show/55539565-think-again
 https://www.thesun.co.uk/news/23528133/brits-unaware-historical-landmarks-in-their-town/
 
 ![firststep](https://github.com/user-attachments/assets/b0b6da2b-67f7-495f-be29-acb5ff4427dc)
+
+https://www.goodreads.com/quotes/243914-before-you-can-think-out-of-the-box-you-have
+
+https://www.goodreads.com/book/show/36666565-i-am-not-my-hair
+
+https://www.goodreads.com/en/book/show/43877477-the-penguin-book-of-migration-literature
+
+https://www.goodreads.com/book/show/36369210-crossroads-through-time
+
+
