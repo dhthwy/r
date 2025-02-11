@@ -167,4 +167,7 @@ Learned a lot from Flint.
 
 https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
+"If you don’t know where you come from, you don’t know where you’re going." – Maya Angelou
+
+"If you don’t trace your steps, you may never find the way forward."
 
