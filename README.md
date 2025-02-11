@@ -165,5 +165,6 @@ You need a lot of traffic though.
 Learned a lot from Flint.
 ```
 
+https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
 
