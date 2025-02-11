@@ -137,3 +137,9 @@ https://www.msn.com/en-in/sports/nfl/why-donald-trump-left-super-bowl-game-midwa
 ![hair](https://github.com/user-attachments/assets/9c3a1b43-2369-45ee-91af-f359247607b7)
 
 https://www.jdsupra.com/legalnews/trump-fires-cfpb-director-rohit-chopra-4333015/ ``` shame. chopra was a good leader. RIP CFPB. ```
+
+https://www.goodreads.com/quotes/103123-if-fate-doesn-t-make-you-laugh-you-just-don-t-get
+
+https://parade.com/living/unanswerable-questions
+
+https://www.goodreads.com/book/show/55539565-think-again
