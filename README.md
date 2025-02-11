@@ -177,3 +177,5 @@ https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
 "What is the right career path? Answers may never come, and that is the heart of resource drain."
 
+"It’s simple: you choose whether to transplant hair from your butt or your legs. Make an appointment at one of our two clinics, and we’ll go over the procedure details. Don’t worry about the end result—no one will notice if you’ve got butt hair."
+``` Yeah I had that conversation. ```
