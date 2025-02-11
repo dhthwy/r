@@ -171,3 +171,7 @@ https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
 "If you don’t trace your steps, you may never find the way forward."
 
+![knots](https://github.com/user-attachments/assets/8f7a52d9-0560-44f2-a4c7-e8850e069295)
+
+
+
