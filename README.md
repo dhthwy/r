@@ -179,3 +179,8 @@ https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
 "It’s simple: you choose whether to transplant hair from your butt or your legs. Make an appointment at one of our two clinics, and we’ll go over the procedure details. Don’t worry about the end result—no one will notice if you’ve got butt hair."
 ``` Yeah I had that conversation. ```
+
+"Sometimes it's more about the journey than the destination." — Jamal Crawford
+
+“Life swings like a pendulum backward and forward between pain and boredom.”
+― Arthur Schopenhauer
