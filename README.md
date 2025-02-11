@@ -173,5 +173,9 @@ https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
 ![knots](https://github.com/user-attachments/assets/8f7a52d9-0560-44f2-a4c7-e8850e069295)
 
+![careerpth](https://github.com/user-attachments/assets/f5432bd8-95ee-40b8-ac5f-3b64fbf23b24)
+
+
+
 
 
