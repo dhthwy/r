@@ -175,7 +175,5 @@ https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
 ![careerpth](https://github.com/user-attachments/assets/f5432bd8-95ee-40b8-ac5f-3b64fbf23b24)
 
-
-
-
+"What is the right career path? Answers may never come, and that is the heart of resource drain."
 
