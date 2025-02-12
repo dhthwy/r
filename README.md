@@ -211,4 +211,4 @@ fixed, blind to all else."
 
 https://www.goodreads.com/quotes/11897181-as-an-example-of-consequential-knowledge-knowledge-affecting-decisions-with
 
-"I don't believe you understand, Jimmy. Return to the beginning and give the client inquiry the careful thought it deserves. You have a brain—put it to work."
+"I don't believe you understand, Jimmy. Return to the beginning and give the client inquiry the careful thought it deserves. You have a brain—put it to work." ```I smack a boss like that around with a large trout.```
