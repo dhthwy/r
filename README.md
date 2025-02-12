@@ -217,7 +217,7 @@ https://www.goodreads.com/quotes/11897181-as-an-example-of-consequential-knowled
 
 https://thedebrief.org/researchers-successfully-demonstrate-star-trek-style-teleportation-without-physically-sending-any-information/
 
-https://apnews.com/article/sean-combs-diddy-federal-prisons-jails-mdc-brooklyn-8c910839adf3ac54a8adc8d7cb3f0b79
+https://apnews.com/article/sean-combs-diddy-federal-prisons-jails-mdc-brooklyn-8c910839adf3ac54a8adc8d7cb3f0b79 ```Damn he has it bad. Diddy might get diddied there.```
 
 "I'll take favorite names for 100, Alex."
 
