@@ -227,4 +227,6 @@ https://www.budgettravel.com/article/most-popular-airports-instagram
 
 https://www.wikihow.com/Favorite-Questions
 
-https://www.earthtrekkers.com/how-to-design-around-the-world-itinerary/
+https://www.earthtrekkers.com/how-to-design-around-the-world-itinerary/ ```I'd like to visit europe before I die.```
+
+https://www.goodreads.com/book/show/43271463-the-boring-book
