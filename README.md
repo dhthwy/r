@@ -203,3 +203,10 @@ and suddenly, there I was.
 I know nothing of heaven.
 My mind is stapled to a sticker,
 fixed, blind to all else."
+
+"Every journey in life has pauses along the way."
+
+“Two possibilities exist: either we are alone in the Universe or we are not. Both are equally terrifying.”
+― Arthur C. Clarke
+
+https://www.goodreads.com/quotes/11897181-as-an-example-of-consequential-knowledge-knowledge-affecting-decisions-with
