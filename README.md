@@ -215,3 +215,4 @@ https://www.goodreads.com/quotes/11897181-as-an-example-of-consequential-knowled
 
 "Rumor has it that Musk is developing a Star Trek-style teleporter. Imagine the time we’d save, jumping from A to C while bypassing the inbetween."
 
+https://thedebrief.org/researchers-successfully-demonstrate-star-trek-style-teleportation-without-physically-sending-any-information/
