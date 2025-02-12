@@ -188,3 +188,8 @@ https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 "Narrow minds are like closed doors – the view they offer is always the same."
 
 "When you restrict your thinking to a single path, you miss the crossroads that could lead you to something greater."
+
+![pitch-perfect-not-a-hat](https://github.com/user-attachments/assets/c0a9e586-25e1-4391-a529-75c9a5545a3e)
+
+
+
