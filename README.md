@@ -226,3 +226,5 @@ https://www.touropia.com/largest-malls-in-the-world/
 https://www.budgettravel.com/article/most-popular-airports-instagram
 
 https://www.wikihow.com/Favorite-Questions
+
+https://www.earthtrekkers.com/how-to-design-around-the-world-itinerary/
