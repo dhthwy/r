@@ -184,3 +184,7 @@ https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
 “Life swings like a pendulum backward and forward between pain and boredom.”
 ― Arthur Schopenhauer
+
+"Narrow minds are like closed doors – the view they offer is always the same."
+
+"When you restrict your thinking to a single path, you miss the crossroads that could lead you to something greater."
