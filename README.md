@@ -193,3 +193,13 @@ https://www.globalcitizensolutions.com/ten-safest-countries-in-the-world/
 
 https://www.jdsupra.com/legalnews/federal-prison-vs-state-prison-is-there-9918346/ ``` federal is better for sure! ```
 
+"How did I get here?
+Damned if I know.
+It hurts too much to think.
+I sat on a toilet, I strained—
+a thought slipped free—
+and suddenly, there I was.
+
+I know nothing of heaven.
+My mind is stapled to a sticker,
+fixed, blind to all else."
