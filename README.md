@@ -33,4 +33,7 @@ Two way street.
 
 She cut me off. She don't care.
 Maybe you don't remember what she did to me.
+
+I was just a play thing really.
+Someone to torment.
 ```
