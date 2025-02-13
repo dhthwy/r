@@ -49,3 +49,11 @@ assholes on me fine.
 Then I am free to say
 what the fuck I want!
 ```
+
+```
+She aint my friend. She aint nothin'.
+Talkin' shit behind my back.
+Havin' people tell me because
+we were kids I shouldn't bother.
+What the fuck.
+```
