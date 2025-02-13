@@ -23,4 +23,6 @@ Sharing without asking me first?
 
 Yeah I know, she has no respect for me at all.
 This is a problem.
+
+How would you feel if I talked the same shit to you?
 ```
