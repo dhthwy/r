@@ -40,4 +40,7 @@ Someone to torment.
 I guess I am not the sharpest tool
 in the shed. I should've known
 she'd betray me again.
+My fault for trusting a demon.
+Fuck me over once... fuck me over twice...
+fuck me over thrice...etc
 ```
