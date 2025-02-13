@@ -25,4 +25,9 @@ Yeah I know, she has no respect for me at all.
 This is a problem.
 
 How would you feel if I talked the same shit to you?
+
+I'm willing to speak freely.
+She don't give a damn about me.
+Then I won't give a damn.
+Two way street.
 ```
