@@ -233,4 +233,12 @@ https://www.goodreads.com/book/show/43271463-the-boring-book
 
 ```
 Bored posting. I don't know why I bother for people who don't like me anyway.
-Yes it isn't the old days. You're right. I should stop.```
+Yes it isn't the old days. You're right. I should stop.
+
+No worries. Not intruding.
+Just posting stuff.
+Deep down I know I am not wanted.
+
+Maybe someday I'll find someone that likes me.
+All I know for sure is that person isn't you.
+```
