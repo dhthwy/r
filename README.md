@@ -230,3 +230,7 @@ https://www.wikihow.com/Favorite-Questions
 https://www.earthtrekkers.com/how-to-design-around-the-world-itinerary/ ```I'd like to visit europe before I die.```
 
 https://www.goodreads.com/book/show/43271463-the-boring-book
+
+```
+Bored posting. I don't know why I bother for people who don't like me anyway.
+Yes it isn't the old days. You're right. I should stop.```
