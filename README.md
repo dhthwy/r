@@ -30,4 +30,7 @@ I'm willing to speak freely.
 She don't give a damn about me.
 Then I won't give a damn.
 Two way street.
+
+She cut me off. She don't care.
+Maybe you don't remember what she did to me.
 ```
