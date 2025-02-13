@@ -36,4 +36,8 @@ Maybe you don't remember what she did to me.
 
 I was just a play thing really.
 Someone to torment.
+
+I guess I am not the sharpest tool
+in the shed. I should've known
+she'd betray me again.
 ```
