@@ -64,3 +64,9 @@ Show some fucking human decency for a change.
 The more I think.
 The more I think fuck y'all.
 ```
+
+```
+No. I feel entitled to some human fucking decency.
+Of which you apparently lack.
+Start practicing what you preach.
+```
