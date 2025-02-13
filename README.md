@@ -43,4 +43,9 @@ she'd betray me again.
 My fault for trusting a demon.
 Fuck me over once... fuck me over twice...
 fuck me over thrice...etc
+
+She wants to block me and sick
+assholes on me fine.
+Then I am free to say
+what the fuck I want!
 ```
