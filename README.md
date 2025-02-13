@@ -242,5 +242,26 @@ Deep down I know I am not wanted.
 Maybe someday I'll find someone that likes me.
 All I know for sure is that person isn't you.
 
-Have a nice life.
+Take care of your man, the one you chose.
+To hell with my ass.
+You were an asshole to me tho.
+So in a way, I wish you to hell too.
+Because of you, I'll never trust another soul.
+
+Don't botha coming to me for anything.
+EVER.
+I am closed to you now. FOREVER.
+Go fuck your man.
+Don't think of me.
+
+You could never be my first.
+OF ANYTHING.
+
+Aite, I am really done now.
+This is it.
+The finish line.
+All I have left to say is
+
+Fuck You. Have a nice life.
+Go before me I'll Piss on your grave.
 ```
