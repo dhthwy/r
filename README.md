@@ -57,3 +57,10 @@ Havin' people tell me because
 we were kids I shouldn't bother.
 What the fuck.
 ```
+
+```
+Either phone or tie it up.
+Show some fucking human decency for a change.
+The more I think.
+The more I think fuck y'all.
+```
