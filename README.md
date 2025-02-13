@@ -70,3 +70,8 @@ No. I feel entitled to some human fucking decency.
 Of which you apparently lack.
 Start practicing what you preach.
 ```
+
+https://www.healthyplace.com/blogs/mentalhealthforthedigitalgeneration/2024/5/how-a-lack-of-basic-human-decency-affects-my-mental-health
+
+but fuck that shit. Let's talk some shit.
+Let's talk all kinds of shit.
