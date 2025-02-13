@@ -241,4 +241,6 @@ Deep down I know I am not wanted.
 
 Maybe someday I'll find someone that likes me.
 All I know for sure is that person isn't you.
+
+Have a nice life.
 ```
