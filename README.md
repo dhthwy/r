@@ -21,3 +21,5 @@ https://www.goodreads.com/quotes/142604-what-is-the-point-of-being-alive-if-you-
 https://www.goodreads.com/quotes/37815-the-mind-once-stretched-by-a-new-idea-never-returns
 
 https://www.goodreads.com/quotes/9744064-there-are-no-problems-only-situations---to-be-dealt
+
+https://www.youtube.com/watch?v=FTPTWAzzpF8
