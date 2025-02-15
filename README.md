@@ -2,6 +2,8 @@
 
 https://www.youtube.com/watch?v=AyJIq_BNPME
 
+https://www.youtube.com/watch?v=THeTZgrWO_s
+
 "History has shown that words of kindness can set off a chain of profoundly consequential devastating effects particularly against women. We learn from the past."
 
 https://www.goodreads.com/quotes/30531-i-would-rather-walk-with-a-friend-in-the-dark
