@@ -25,3 +25,9 @@ https://www.goodreads.com/quotes/9744064-there-are-no-problems-only-situations--
 https://www.youtube.com/watch?v=FTPTWAzzpF8
 
 https://www.goodreads.com/quotes/7675070-always-remember-that-it-is-impossible-to-speak-in-such
+
+"I understand I'd 90% a mere after-thought; Like a life spent mostly as a distant onlooker.
+The shitty box I was put in forces me to act and talk a certain way that is not me.
+I have my reasons for past situations, unfortunately they're largely misunderstood.
+There's simply not much left of me, so I must be certain of myself or I splat.
+I have much to think about, no guarantees I'll be able to fix myself."
