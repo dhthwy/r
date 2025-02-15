@@ -31,3 +31,5 @@ The shitty box I was put in forces me to act and talk a certain way that is not 
 I have my reasons for past situations, unfortunately they're largely misunderstood.
 There's simply not much left of me, so I must be certain of myself or I splat.
 I have much to think about, no guarantees I'll be able to fix myself."
+
+https://www.goodreads.com/quotes/9758693-you-ve-heard-of-the-butterfly-effect-right-that-if-a
