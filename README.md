@@ -23,3 +23,5 @@ https://www.goodreads.com/quotes/37815-the-mind-once-stretched-by-a-new-idea-nev
 https://www.goodreads.com/quotes/9744064-there-are-no-problems-only-situations---to-be-dealt
 
 https://www.youtube.com/watch?v=FTPTWAzzpF8
+
+https://www.goodreads.com/quotes/7675070-always-remember-that-it-is-impossible-to-speak-in-such
