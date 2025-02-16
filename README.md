@@ -47,3 +47,8 @@ I've thought long about this, and this very much seems to be the case.
 Put yourself in my shoes. What if things were reversed?
 
 So you were probably right at the start, I really ought to invest elsewhere."
+
+"I've had many potentials. For me, without the right connection I end up turning them down by accident or give them the cold shoulder. So I waited and then got old and grey.
+Oops. Wasted my time.
+
+Sure be nice to rewind back to '20 when I at least felt a little bit alive and hopeful."
