@@ -35,7 +35,3 @@ I have much to think about, no guarantees I'll be able to fix myself."
 https://www.goodreads.com/quotes/9758693-you-ve-heard-of-the-butterfly-effect-right-that-if-a
 
 https://www.youtube.com/watch?v=fisdSW-YGs8&list=PLH__5dktuLHxEQAQYqoS9S6yufyGoxkb9
-
-"It's been suggested that I should put my resources elsewhere.
-Do I have that right?
-Wouldn't be the first time."
