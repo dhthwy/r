@@ -36,7 +36,7 @@ https://www.goodreads.com/quotes/9758693-you-ve-heard-of-the-butterfly-effect-ri
 
 https://www.youtube.com/watch?v=fisdSW-YGs8&list=PLH__5dktuLHxEQAQYqoS9S6yufyGoxkb9
 
-"Look, I know she's your property as was clearly communicated by many things including actions, choices, and the dark.
+"Look, I know she's your property as was clearly demonstrated by many things including actions, choices, and the dark.
 
 While I don't hold the 'owner' mindset, others evidently do.
 
