@@ -35,3 +35,15 @@ I have much to think about, no guarantees I'll be able to fix myself."
 https://www.goodreads.com/quotes/9758693-you-ve-heard-of-the-butterfly-effect-right-that-if-a
 
 https://www.youtube.com/watch?v=fisdSW-YGs8&list=PLH__5dktuLHxEQAQYqoS9S6yufyGoxkb9
+
+"Look, I know she's your property as was clearly communicated by many things including actions, choices, and the dark.
+
+While I don't hold the 'owner' mindset, others evidently do.
+
+At the end of the day the owner dictates their property along with anything connnected, my decisions are based on that.
+
+I've thought long about this, and this very much seems to be the case.
+
+Put yourself in my shoes. What if things were reversed?
+
+So you were probably right at the start, I really ought to invest elsewhere."
