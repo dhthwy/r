@@ -52,3 +52,5 @@ So you were probably right at the start, I really ought to invest elsewhere."
 Oops. Wasted my time.
 
 Sure be nice to rewind back to '20 when I at least felt a little bit alive and hopeful."
+
+"You should have defended me. You should know me well enough by now."
