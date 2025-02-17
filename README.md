@@ -66,7 +66,7 @@ There's absolutely no reason to prolong it. Don't need to be near to make peace,
 On the other hand, I do get it - she probably didn't want that.
 And that's the big reason why I don't believe either one has sincerity in supply.
 
-How you treat others from day 0 is typically the most authentic version of yourself.
+How you treat others from day 0 is arguably the most authentic version of yourself.
 If you need a director, then it's just a show.
 
 Now I've made some mistakes with my potty mouth in reaction, but I never before meddled or was unsupportive. Anything to the contrary was misread.
@@ -75,8 +75,6 @@ Meddling with other people's bubble isn't very nice.
 https://www.youtube.com/watch?v=wTqb3jcZAhk&t=23s 
 
 https://www.psychologytoday.com/us/blog/finding-new-home/202108/why-these-friends-and-relatives-cant-stop-meddling-in-your-life -- "It's one thing to make unhappiness known for being left out. It's another thing to interfere."
-
-
 
 
 Anyway, my eyes are closed. switched off."
