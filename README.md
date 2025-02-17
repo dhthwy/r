@@ -67,7 +67,7 @@ On the other hand, I do get it - she probably didn't want that.
 And that's the big reason why I don't believe either one has sincerity in supply.
 
 How you treat others from day 0 is typically the most authentic version of yourself.
-If you need others to direct, then it's just a show.
+If you need a director, then it's just a show.
 
 Now I've made some mistakes with my potty mouth in reaction, but I never before meddled or was unsupportive. Anything to the contrary was misread.
 Meddling with other people's bubble isn't very nice.
