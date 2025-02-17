@@ -53,33 +53,6 @@ Oops. Wasted my time.
 
 Sure be nice to rewind back to '20 when I at least felt a little bit alive and hopeful."
 
-"You should have defended me. You should know me well enough by now."
-
-"Let's remember that she shared very personal things, which I confided in her, about me to old friends of mine for the purpose of belittling and mockery, which went viral. Then attacked my family members and made them believe I harass and threaten women. 
-I have no relations with my family anymore.
-
-She filed a restraining order against me and then threatened me with felonies. She got her entire family in on that.
-She's talked to reporters about me. She's had my life threatened on many occasions. Hell, her own actions played a role in my arrest!
-
-And inbetween these acts of diabolical, she makes the appearance of propriety, civility, kindness, and integrity.
-
-I'm sorry, she says. I promise I'll make it up to you, she says.
-But any step I take forward, slam steps back. Every single time.
-
-Has she made any real effort to help? No, she kept me in the dark, and I know well she was perfectly capable of showing me some light. 
-It was a choice to keep me in the dark. And she continues to make that choice to this day.
-
-I never did do any harm her. I always tried to give her the benefit of the doubt.
-So why does she do it? Cause I was nice! Yeaaah I was all sorts of kind to her. But she repaid that kindness with her own special diabolical way.
-
-Believe me when I say that i've lost a LOT on the account of her.
-
-Then she gave away the only thing I possibly had with her.
-
-So when she puts her family members up to attack, to handle me, to put me in my place, it's just another leg in a destructive, nearly 5 years long, pattern.
-Yes you had a hit nerve.
-You can have your 100, I decline the 10."
-
 ![d](https://github.com/user-attachments/assets/63da7607-837f-46cf-a68f-8f91ff6c7d72)
 
 Do I look happy? I done forgotten how to smile.
