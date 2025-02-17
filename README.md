@@ -96,4 +96,6 @@ And that's the big reason why I don't believe either one has sincerity in supply
 How you treat others from day 0 is typically the most authentic version of yourself.
 If you need others to direct, then it's just a show.
 
+https://www.youtube.com/watch?v=wTqb3jcZAhk&t=23s
+
 Anyway, my eyes are closed."
