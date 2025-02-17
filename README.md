@@ -77,8 +77,6 @@ https://www.youtube.com/watch?v=wTqb3jcZAhk&t=23s
 https://www.psychologytoday.com/us/blog/finding-new-home/202108/why-these-friends-and-relatives-cant-stop-meddling-in-your-life -- "It's one thing to make unhappiness known for being left out. It's another thing to interfere."
 
 
-Where is the best place to go for hookups? tinder? bars don't work well for me. 
-Am I supposed to ask random women at churches, how much?
 
 
 Anyway, my eyes are closed. switched off."
