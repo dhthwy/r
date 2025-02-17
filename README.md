@@ -93,7 +93,7 @@ There's absolutely no reason to prolong it. Don't need to be near to make peace,
 On the other hand, I do get it - she probably didn't want that.
 And that's the big reason why I don't believe either one has sincerity in supply.
 
-How you treat others from day 0 is typically the most authentic version of yourself (first impressions).
+How you treat others from day 0 is typically the most authentic version of yourself.
 If you need others to direct, then it's just a show.
 
 Anyway, my eyes are closed."
