@@ -72,9 +72,13 @@ If you need others to direct, then it's just a show.
 Now I've made some mistakes with my potty mouth in reaction, but I never before meddled or was unsupportive. Anything to the contrary was misread.
 Meddling with other people's bubble isn't very nice.
 
-https://www.youtube.com/watch?v=wTqb3jcZAhk&t=23s -- I would never think of doing that to you. For the first. 
+https://www.youtube.com/watch?v=wTqb3jcZAhk&t=23s 
 
 https://www.psychologytoday.com/us/blog/finding-new-home/202108/why-these-friends-and-relatives-cant-stop-meddling-in-your-life -- "It's one thing to make unhappiness known for being left out. It's another thing to interfere."
+
+
+Where is the best place to go for hookups? tinder? bars don't work well for me. 
+Am I supposed to ask random women at churches, how much?
 
 
 Anyway, my eyes are closed. switched off."
