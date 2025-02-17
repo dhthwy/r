@@ -63,6 +63,7 @@ https://www.youtube.com/watch?v=cQywZYoGB1g
 
 "You had the chance to be a mediator for peace and healing, but instead, you chose to assert dominance, prioritizing power over those in pain.
 There's absolutely no reason to prolong it. Don't need to be near to make peace, but it aint happening on this thing.
+You could have simply contacted me directly. You had that opportunity.
 On the other hand, I do get it - she probably didn't want that.
 And that's the big reason why I don't believe either one has sincerity in supply.
 
