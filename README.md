@@ -96,4 +96,4 @@ And that's the big reason why I don't believe either one has sincerity in supply
 How you treat others from day 0 is typically the most authentic version of yourself (first impressions).
 If you need others to direct, then it's just a show.
 
-Anyway, I don't look anymore."
+Anyway, my eyes are closed."
