@@ -87,3 +87,13 @@ Do I look happy? I done forgotten how to smile.
 https://www.goodreads.com/quotes/118970-there-is-a-loneliness-in-this-world-so-great-that
 
 https://www.youtube.com/watch?v=cQywZYoGB1g
+
+"See you could have acted as a mediator for peace and healing but instead you were too busy showing who's boss and delightment over others suffering.
+There's absolutely no reason to prolong it. Don't need to be near to make peace, but it aint happening on this thing.
+On the other hand, I do get it - she probably didn't want that.
+And that's the big reason why I don't believe either one has sincerity in supply.
+
+How you treat others from day 0 is typically the most authentic version of yourself (first impressions).
+If you need others to direct, then it's just a show.
+
+Anyway, I don't look anymore."
