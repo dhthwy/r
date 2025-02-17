@@ -61,7 +61,7 @@ https://www.goodreads.com/quotes/118970-there-is-a-loneliness-in-this-world-so-g
 
 https://www.youtube.com/watch?v=cQywZYoGB1g
 
-"See you could have acted as a mediator for peace and healing but instead you were too busy showing who's boss and posturing over those who are suffering.
+"You had the chance to be a mediator for peace and healing, but instead, you chose to assert dominance, prioritizing power over those in pain.
 There's absolutely no reason to prolong it. Don't need to be near to make peace, but it aint happening on this thing.
 On the other hand, I do get it - she probably didn't want that.
 And that's the big reason why I don't believe either one has sincerity in supply.
