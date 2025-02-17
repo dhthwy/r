@@ -97,6 +97,7 @@ How you treat others from day 0 is typically the most authentic version of yours
 If you need others to direct, then it's just a show.
 
 Now I've made some mistakes with my potty mouth in reaction, but I never before meddled or was unsupportive. Anything to the contrary was misread.
+Meddling with other people's bubble isn't very nice.
 
 https://www.youtube.com/watch?v=wTqb3jcZAhk&t=23s
 
