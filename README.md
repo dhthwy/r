@@ -76,4 +76,11 @@ I don't record. I'm easy.
 
 I walk a fine line that is antithetical to my ailing mental health.
 
+I take walks but damn elderly women walk faster than me these days. 
+Used to walk like lightning.
+
+https://www.nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.html
+
+I wonder what they're going to do after that? 
+
 Anyway, my eyes are closed. switched off."
