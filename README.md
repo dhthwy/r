@@ -28,3 +28,7 @@ Let me be clear that whatever I happen to post are simply my thoughts and percep
 Wasted so much money these past few years investing that brought me $0 in returns that could've otherwise went to other things. Gotta break that pattern.
 
 2 vs 1.
+or
+https://www.investing.com/news/sec-filings/tractor-supply-announces-5for1-stock-split-93CH-3784533
+
+Got to be careful because if you don't plan your trades right, you'll lose way more money.
