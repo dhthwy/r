@@ -87,4 +87,6 @@ I wonder what they're going to do after that? They didn't have the musk pass lol
 
 Misunderstands are too easy.
 
+https://aaronhall.com/trimming-the-fat-strategic-humor-from-harvard-business-review/ -- good read
+
 Anyway, my eyes are closed. switched off."
