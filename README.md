@@ -32,3 +32,5 @@ or
 https://www.investing.com/news/sec-filings/tractor-supply-announces-5for1-stock-split-93CH-3784533
 
 Got to be careful because if you don't plan your trades right, you'll lose way more money.
+
+And you'd be hard pressed to find empathy in the trading community. They'll tell you 'you lost that? so what?' and rub it in of how they're raking in millions. 
