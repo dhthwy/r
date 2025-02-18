@@ -83,10 +83,8 @@ I wonder what they're going to do after that? They didn't have the musk pass lol
 
 Misunderstands are too easy.
 
-https://aaronhall.com/trimming-the-fat-strategic-humor-from-harvard-business-review/
-
 https://lisabevere.com/blog/god-doesnt-love-his-children-equally/
 
-These past few years have been the only time in my life where I've been completely useless.
+Let me be clear that whatever I happen to post are simply my thoughts and perceptions, it does not mean they are facts.
 
 Anyway, my eyes are closed. switched off."
