@@ -70,5 +70,8 @@ https://www.youtube.com/watch?v=wTqb3jcZAhk&t=23s
 
 https://www.psychologytoday.com/us/blog/finding-new-home/202108/why-these-friends-and-relatives-cant-stop-meddling-in-your-life -- "It's one thing to make unhappiness known for being left out. It's another thing to interfere."
 
+If you want to make peace and help lift a nightmare, phone.
+I don't record. I'm easy.
+‪(720) 441-2562
 
 Anyway, my eyes are closed. switched off."
