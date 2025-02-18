@@ -25,7 +25,7 @@ Let me be clear that whatever I happen to post are simply my thoughts and percep
 
 ![Screenshot_20250218_172333](https://github.com/user-attachments/assets/61436ccc-e2df-484a-9008-de7c8e8f33cb)
 
-Wasted so much money these past few years investing that brought me $0 in returns that could've otherwise went to other things. Gotta break that pattern.
+Wasted so much money these past few years (around $6k) investing that brought me $0 in returns that could've otherwise went to other things. Gotta break that pattern.
 
 2 vs 1.
 or
