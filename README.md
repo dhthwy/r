@@ -76,6 +76,8 @@ I don't record. I'm easy.
 
 I walk a fine line that is antithetical to my ailing mental health.
 
-https://www.youtube.com/watch?v=N6NL41bREHo
+![eln](https://github.com/user-attachments/assets/a3af4c14-0901-4686-a09a-649f8407c8fc)
+
+Even members of congress got stuck outside.
 
 Anyway, my eyes are closed. switched off."
