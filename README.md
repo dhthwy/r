@@ -74,4 +74,8 @@ If you want to make peace and help lift a nightmare, phone.
 I don't record. I'm easy.
 ‪(720) 441-2562
 
+I walk a fine line that is antithetical to my ailing mental health.
+
+https://www.youtube.com/watch?v=N6NL41bREHo
+
 Anyway, my eyes are closed. switched off."
