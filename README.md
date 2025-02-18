@@ -53,10 +53,6 @@ Oops. Wasted my time.
 
 Sure be nice to rewind back to '20 when I at least felt a little bit alive and hopeful."
 
-![d](https://github.com/user-attachments/assets/63da7607-837f-46cf-a68f-8f91ff6c7d72)
-
-Do I look happy? I done forgotten how to smile.
-
 https://www.goodreads.com/quotes/118970-there-is-a-loneliness-in-this-world-so-great-that
 
 
@@ -87,6 +83,30 @@ I wonder what they're going to do after that? They didn't have the musk pass lol
 
 Misunderstands are too easy.
 
-https://aaronhall.com/trimming-the-fat-strategic-humor-from-harvard-business-review/ 
+https://aaronhall.com/trimming-the-fat-strategic-humor-from-harvard-business-review/
+
+https://lisabevere.com/blog/god-doesnt-love-his-children-equally/
+
+"Remember: I wasn't always this way
+
+I injured my inner ear at an old job long long time ago. For close to a decade I spent stuck in bed half of the time because I was too dizzy to be upright.
+Couldn't drive that way, nearly killed myself trying.
+Can you imagine yourself in bed while your eyes constantly roll uncontrollably to the left?
+The damage to my ear, I suspect, tricked my brain into thinking I was in motion, as if I was spinning like a figure skater.
+I was still productive and found ways to make money, just severely nerfed.
+The condition went away on its own, but it took its toll on me.
+
+It was around that time I helped a young mother launch an e-retail business named 'Flower Girl Princess'
+Yeah, we sold formal wear for girls.
+I built the website, hosted it, handled SEO and ad campaign, and wrote press releases.
+Eventually it hit $30k/mo in revenue with roughly 2k unique visitors per day.
+I didn't get much out of it because even tho $30k/mo sounds like a lot, the inventory costs were astronomical.
+But I did stay there with her kids while we built the business.
+She was a beautiful woman, loved doing photoshoots, but nothing ever happened between us.
+Her boyfriends would come and go and there were no issues with any of them. They were all pretty nice.
+Ultimately her business failed. It was heavily dependent on Google, and when Google changed their SERP algorithmns, her website fell off the map.
+We were warned well ahead, but I failed to convince her of the changes we needed to make to stay afloat."
+
+These past few years have been the only time in my life where I've been completely useless.
 
 Anyway, my eyes are closed. switched off."
