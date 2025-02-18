@@ -73,6 +73,8 @@ https://www.psychologytoday.com/us/blog/finding-new-home/202108/why-these-friend
 If you want to make peace and help lift a nightmare, phone.
 I don't record. I'm easy.
 ‪(720) 441-2562
+or email
+```dhthwy@gmail```
 
 I walk a fine line that is antithetical to my ailing mental health.
 
@@ -81,6 +83,8 @@ Used to walk like lightning.
 
 https://www.nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.html
 
-I wonder what they're going to do after that? 
+I wonder what they're going to do after that? They didn't have the musk pass lol.
+
+Misunderstands are too easy.
 
 Anyway, my eyes are closed. switched off."
