@@ -27,3 +27,5 @@ Let's that be the end of my bitch mode.
 
 
 https://www.inc.com/jeff-haden/the-science-behind-why-successful-people-briefly-pretend-to-be-someone-else.html
+
+Maybe it is better not to talk about my issues, because then everyone will know everything. But my issues are a real problem, and this type of problem is a blocker.
