@@ -11,13 +11,6 @@ I walk a fine line that is antithetical to my ailing mental health.
 
 Misunderstands are too easy.
 
-https://lisabevere.com/blog/god-doesnt-love-his-children-equally/
-
-Wasted so much money these past few years (around $6k) investing that brought me $0 in returns that could've otherwise went to other things. Gotta break that pattern.
-
-2 vs 1.
-or
-https://www.investing.com/news/sec-filings/tractor-supply-announces-5for1-stock-split-93CH-3784533
 
 https://www.youtube.com/watch?v=pfz0tDQZhqs
 
