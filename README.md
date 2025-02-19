@@ -25,6 +25,5 @@ S'all good. My pinched nerve is better now.
 
 Let's that be the end of my bitch mode.
 
-It starts with "hi"
 
 https://www.inc.com/jeff-haden/the-science-behind-why-successful-people-briefly-pretend-to-be-someone-else.html
