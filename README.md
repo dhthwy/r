@@ -26,3 +26,5 @@ Got to be careful because if you don't plan your trades right (and there is a LO
 https://www.youtube.com/watch?v=pfz0tDQZhqs
 
 https://www.youtube.com/watch?v=BLCilxtYcTE
+
+https://www.youtube.com/watch?v=X-zSJljpKNc
