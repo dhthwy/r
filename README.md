@@ -24,3 +24,5 @@ https://www.investing.com/news/sec-filings/tractor-supply-announces-5for1-stock-
 Got to be careful because if you don't plan your trades right (and there is a LOT that goes in to it), you'll lose way more money.
 
 https://www.youtube.com/watch?v=pfz0tDQZhqs
+
+https://www.youtube.com/watch?v=BLCilxtYcTE
