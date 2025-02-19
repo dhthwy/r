@@ -1,10 +1,7 @@
 # r
 
 
-If you want to make peace and help lift a nightmare, phone.
-I don't record. I'm easy.
-‪(720) 441-2562
-or email
+If you want to make peace and help lift a nightmare,  email
 ```dhthwy@gmail```
 
 I walk a fine line that is antithetical to my ailing mental health.
@@ -27,3 +24,7 @@ See I can't even take care of myself. Death by peanut butter over here.
 S'all good. My pinched nerve is better now.
 
 Let's that be the end of my bitch mode.
+
+It starts with "hi"
+
+https://www.inc.com/jeff-haden/the-science-behind-why-successful-people-briefly-pretend-to-be-someone-else.html
