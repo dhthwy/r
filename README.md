@@ -15,8 +15,6 @@ https://outwardon.com/article/the-horrifying-consequences-of-not-stretching/
 
 ![typing-stressed-1263528464](https://github.com/user-attachments/assets/2f5f9c4a-1b0b-4766-b158-f7717e2bdb00)
 
-"Optimism is a Luxury for the privileged"
-
 https://www.goodreads.com/book/show/59014783-7-figure-fiction -- Just finished reading.
 
 https://www.youtube.com/watch?v=BpClbMGO9rw
