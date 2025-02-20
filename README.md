@@ -24,3 +24,7 @@ Maybe it is better not to talk about my issues, because then everyone will know 
 "Those with whom you share your light help you soar toward possibility. Those you abandon in the dark remain trapped in their own shadows."
 
 ![boxthink](https://github.com/user-attachments/assets/61522b43-1b46-4471-bdbb-fac343a46594) -- Ways of thinking. If you can't think on the inside, then you must think outside of the box.
+
+![lb](https://github.com/user-attachments/assets/41618c5a-20d0-43f2-87eb-ff36e06d0dec)
+
+https://outwardon.com/article/the-horrifying-consequences-of-not-stretching/
