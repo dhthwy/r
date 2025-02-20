@@ -18,3 +18,6 @@ https://outwardon.com/article/the-horrifying-consequences-of-not-stretching/
 "Optimism is a Luxury for the privileged"
 
 https://www.goodreads.com/book/show/59014783-7-figure-fiction -- Just finished reading.
+
+https://www.youtube.com/watch?v=BpClbMGO9rw
+
