@@ -28,4 +28,7 @@ Let's that be the end of my bitch mode.
 
 https://www.inc.com/jeff-haden/the-science-behind-why-successful-people-briefly-pretend-to-be-someone-else.html
 
-Maybe it is better not to talk about my issues, because then everyone will know everything. But my issues are a real problem, and this type of problem is a blocker. And it's not a people issue.
+Maybe it is better not to talk about my issues, because then everyone will know everything about me. But my issues are a real problem, and this type of problem is a blocker. And it's not a people issue.
+
+"Those with whom you share your light help you soar toward possibility. Those you abandon in the dark remain trapped in their own shadows."
+
