@@ -12,7 +12,7 @@ It probably isn't helping that most of my diet consists of a few cups of milk an
 
 See I can't even take care of myself. Death by peanut butter over here.
 
-S'all good. My pinched nerve is better now.
+S'all good. My pinched nerve is better now. Got off on the wrong foot.
 
 Let's that be the end of my bitch mode.
 
