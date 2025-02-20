@@ -12,3 +12,5 @@ Maybe it is better not to talk about my issues, because then everyone will know 
 ![lb](https://github.com/user-attachments/assets/41618c5a-20d0-43f2-87eb-ff36e06d0dec)
 
 https://outwardon.com/article/the-horrifying-consequences-of-not-stretching/
+
+![typing-stressed-1263528464](https://github.com/user-attachments/assets/2f5f9c4a-1b0b-4766-b158-f7717e2bdb00)
