@@ -31,3 +31,6 @@ So when you talk about leaving me out in the cold and you did. I understand that
 You come first, I come absolute zero. That is the way it has been because that is the way she chooses it to be."
 
 absolute zero = -459.67 fahrenheit. No wonder it hurts so much in my bones. That's f'ing cold!
+
+I know, I need to drop 6k just to have some random girl give me a hug, NO WONDER WHY SUICIDE RATES ARE SO HIGH. 
+Have fun!
