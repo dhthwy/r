@@ -1,10 +1,5 @@
 # r
 
-![bh](https://github.com/user-attachments/assets/ac5ca252-5d26-4083-8a48-f1f4af895db8)
-
-
-![asm](https://github.com/user-attachments/assets/aebc656b-f80a-4618-9fb1-c6ad19096c23)
-
 
 
 
