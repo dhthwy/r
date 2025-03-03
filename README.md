@@ -1,8 +1,12 @@
 # r
 
-I'm going away from here. This has made me insane; more I talk like this, more insane.
+![bh](https://github.com/user-attachments/assets/ac5ca252-5d26-4083-8a48-f1f4af895db8)
 
-I don't want to go schizo and psycho and be hateful or create senseless drama, so I gotta get away. My apologies for my insane outburst.
+
+![asm](https://github.com/user-attachments/assets/aebc656b-f80a-4618-9fb1-c6ad19096c23)
+
+
+
 
 I know I've been acting like an asshole lately.
 
