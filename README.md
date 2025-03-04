@@ -11,3 +11,6 @@ I've held my composure for a long time with people who treat me as inferior. But
 There may be misunderstandings, but there’s no real way to know here. My attempts to touch base were dismissed, leaving me out of options for change.
 
 Hopefully I'll get better on my own. Things are pretty murky.
+
+
+![The-Dunning-Kruger-Effect-2983537060](https://github.com/user-attachments/assets/67dce0f3-2314-4ec3-9f28-1ab99ecd3e25)
