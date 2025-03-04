@@ -6,6 +6,8 @@ It was only in the past few months that I began expressing my frustration more o
 
 That's why it's best for me to either remain silent or just continue with the occasional entertainment post. So If I post a video or something - it's probably just because I think it is funny.
 
+If I talk about money and things that are holding me back, it just pisses people off. It's happened in the past, it's happened recently.
+
 I've held my composure for a long time with people who treat me as inferior. But recently, it has triggered old wounds I don't want to reopen again. In the state of agony I'm in, I just can't handle it right now. For the sake of preservation, I won’t engage with anything that stirs those feelings.
 
 There may be misunderstandings, but there’s no real way to know here. My attempts to touch base were dismissed, leaving me out of options for change.
