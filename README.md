@@ -10,4 +10,4 @@ I've held my composure for a long time with people who treat me as inferior. But
 
 Perhaps there is misunderstandings, but there is no way to really know on here.
 
-Hopefully I'll get better on my own.
+Hopefully I'll get better on my own. Things are pretty murky.
