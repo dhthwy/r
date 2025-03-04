@@ -6,7 +6,7 @@ It was only in the past few months that I began expressing my frustration more o
 
 That's why it's best for me to either remain silent or just continue with the occasional entertainment post. So If I post a video or something - it's probably just because I think it is funny.
 
-I've done well holding my composure with people who treat me as inferior for a long time, I think. But recently it has pinched old nerves that I don't wish to repeat. As the ball of agony I've become - I just can't handle it right now.
+I've held my composure for a long time with people who treat me as inferior. But recently, it has triggered old wounds I don't want to reopen. In the state of agony I've reached, I just can't handle it right now.
 
 Perhaps there is misunderstandings, but there is no way to really know on here.
 
