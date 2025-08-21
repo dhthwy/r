@@ -1,5 +1,9 @@
 # r
 
+https://www.wlns.com/news/speaker-of-the-house-matt-hall-addresses-senates-budget-negotiations-and-priorities/
+
+---
+
 https://measuringly.com/how-long-is-40-inches/
 
 <img width="505" height="477" alt="Screenshot_20250821_112355" src="https://github.com/user-attachments/assets/e1d14b9c-7f11-4cd3-ad52-d342ab3daa0c" />
