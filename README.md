@@ -2,6 +2,10 @@
 
 Unfortunately, I am the only able one to take the old p in for a heart operation, and they're going to need close monitoring and help for some weeks after.
 
+https://www.youtube.com/watch?v=_xToQ4cIHkk - that's what happens you live like this.
+
+---
+
 https://www.wlns.com/news/speaker-of-the-house-matt-hall-addresses-senates-budget-negotiations-and-priorities/
 
 ---
