@@ -1,5 +1,10 @@
 # r
 
+<img width="798" height="467" alt="Screenshot_20250821_082518" src="https://github.com/user-attachments/assets/2cf3c780-fbfd-477f-9b2e-15113bd6ee4f" />
+
+
+---
+
 "I'm actually quite mellow and quiet.
 
 I shiver badly when there's any yelling or threats.
