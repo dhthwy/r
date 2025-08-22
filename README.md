@@ -1,48 +1,5 @@
 # r
 
-"
-It's fine :)
-
-The gangbanging against me effectively chooses to cut out my side.
-
-That's what that was. That's what that other thing was. That's what that was. Etc.
-
-Long as you understand that. But I've been saying that forever now.
-
-I'm so scatter brained I can't even write anymore.
-
-Dementia definitely in my future.
-"
-
-"Well, here's the thing:
-
-One has to know when they're chasing their own tail around for nothing, and at expense.
-
-One has to know when all prior understandings have been invalidated.
-
-No one told me anything. That requires respect.
-
-So when I realized, I was actually in support.
-
-Never disparaged.
-
-Never did anything. What a couple of unhappy, frusterated-induced, songs you probably over-thought?
-
-Nah, I had a muzzle on. Just wasn't happy about the imbalance with me being stuck with no realistic ways or means.
-
-I had no opinion.
-
-Wasn't until the assassination on my character did I start to bite.
-
-And the assassinations came forth as 'we.'
-
-I didn't do any wrong to you back then.
-
-Maybe that was forgotten.
-
-But I understand now - they can do no wrong. All the wrong = me from you. Just like always."
-
----
 
 "There's decent public transportion in this county. They come right to you. Free for medicare people. Otherwise it's like 2 dollars. But it's restricted outside of county.
 
