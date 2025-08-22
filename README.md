@@ -3,7 +3,7 @@
 "
 It's fine :)
 
-The gangbanging against me effectively chooses to cut me out.
+The gangbanging against me effectively chooses to cut out my side.
 
 That's what that was. That's what that other thing was. That's what that was. Etc.
 
