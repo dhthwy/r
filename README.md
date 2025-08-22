@@ -1,5 +1,33 @@
 # r
 
+"Well, here's the thing:
+
+One has to know when they're chasing their own tail around for nothing, and at expense.
+
+One has to know when all prior understandings have been invalidated.
+
+No one told me anything. That requires respect.
+
+So when I realized, I was actually in support.
+
+Never disparaged.
+
+Never did anything. What a couple of unhappy, frusterated-induced, songs you probably over-thought?
+
+Nah, I had a muzzle on. Just wasn't happy of the imbalance with me being stuck with no realistic ways or means.
+
+I had no opinion.
+
+Wasn't until the assination on my character did I start to bite.
+
+And it came forth as 'we.'
+
+I didn't do any wrong to you back then.
+
+Maybe that was forgotten."
+
+---
+
 "There's decent public transportion in this county. They come right to you. Free for medicare people. Otherwise it's like 2 dollars. But it's restricted outside of county.
 
 Scheduling is the biggest issue. You have to plan well in advance to get rides."
