@@ -1,5 +1,17 @@
 # r
 
+"
+It's fine :)
+
+The gangbanging against me effectively chooses to cut me out.
+
+That's what that was. That's what that other thing was. That's what that was. Etc.
+
+Long as you understand that. But I've been saying that forever now.
+
+I'm so scatter brained I can't even write anymore.
+"
+
 "Well, here's the thing:
 
 One has to know when they're chasing their own tail around for nothing, and at expense.
@@ -14,7 +26,7 @@ Never disparaged.
 
 Never did anything. What a couple of unhappy, frusterated-induced, songs you probably over-thought?
 
-Nah, I had a muzzle on. Just wasn't happy of the imbalance with me being stuck with no realistic ways or means.
+Nah, I had a muzzle on. Just wasn't happy about the imbalance with me being stuck with no realistic ways or means.
 
 I had no opinion.
 
