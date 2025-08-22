@@ -18,9 +18,9 @@ Nah, I had a muzzle on. Just wasn't happy of the imbalance with me being stuck w
 
 I had no opinion.
 
-Wasn't until the assination on my character did I start to bite.
+Wasn't until the assassination on my character did I start to bite.
 
-And it came forth as 'we.'
+And the assassinations came forth as 'we.'
 
 I didn't do any wrong to you back then.
 
