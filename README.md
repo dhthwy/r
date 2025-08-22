@@ -24,7 +24,9 @@ And it came forth as 'we.'
 
 I didn't do any wrong to you back then.
 
-Maybe that was forgotten."
+Maybe that was forgotten.
+
+But I understand now - they can do no wrong. All the wrong = me from you. Just like always."
 
 ---
 
