@@ -10,6 +10,8 @@ That's what that was. That's what that other thing was. That's what that was. Et
 Long as you understand that. But I've been saying that forever now.
 
 I'm so scatter brained I can't even write anymore.
+
+Dementia definitely in my future.
 "
 
 "Well, here's the thing:
