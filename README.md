@@ -1,5 +1,11 @@
 # r
 
+"There's decent public transportion in this county. They come right to you. Free for medicare people. Otherwise it's like 2 dollars. But it's restricted outside of county.
+
+Scheduling is the biggest issue. You have to plan well in advance to get rides."
+
+---
+
 https://news.northwestern.edu/stories/2025/08/what-makes-a-superager/
 
 ---
