@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/KENVACSpTgo
+
 https://www.youtube.com/watch?v=xsIASofR5-E
 
 ---
