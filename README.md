@@ -1,5 +1,11 @@
 # r
 
+https://www.youtube.com/watch?v=GOyaxuTEVMo
+
+"basically what I did, the idiot I was."
+
+---
+
 https://www.youtube.com/shorts/6hUiO7vBjsY
 
 ---
