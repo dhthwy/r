@@ -1,5 +1,9 @@
 # r
 
+"Hard to believe there's anything nice in the world for me after all these anti-social, nasty actions taken against me. Everyone you know is anti-social toward me. That's a great sign?"
+
+---
+
 "
 Words not directed to me are nothing.
 
