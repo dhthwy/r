@@ -1,6 +1,20 @@
 # r
 
 "
+Words not directed to me are nothing.
+
+Actions speak.
+
+It's how you know if words had any meaning.
+
+How you treat others speak.
+
+Thanks for showing me, many times, this year.
+"
+
+---
+
+"
 Definitely changes.
 
 Pretty much just like at the start.
