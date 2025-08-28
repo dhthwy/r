@@ -1,5 +1,10 @@
 # r
 
+https://www.youtube.com/shorts/b9BwPYNQH-Q  - "This probably my future."
+
+
+---
+
 https://www.youtube.com/watch?v=GOyaxuTEVMo
 
 "basically what I did, the idiot I was."
