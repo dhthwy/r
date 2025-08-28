@@ -1,10 +1,17 @@
 # r
 
-"busting knuckles on my pos 25 year old car.
-
-it'll probably die by brittle wires or lack of part availability before rust or mechanical failure.
-
-nice and crusty.
 "
+Definitely changes.
 
-![IMG_0227](https://github.com/user-attachments/assets/4aff4129-4472-40e6-bf8d-385c7979c94c)
+Pretty much just like at the start.
+
+'Don't want anything to do with you' anti-social-to-me type behavior.
+
+Came full circle huh?
+
+Proved it this year.
+
+Easy to test. When I've asked or done something to fix that.
+
+What did you do? You were indifferent and straight up 'get the fuck away from me I'm busy.'
+"
