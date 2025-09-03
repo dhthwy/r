@@ -6,7 +6,7 @@
 
 Engines, transmissions may be good these days, but they encase it with cheap plastic some of which is critical.
 
-Especially on an interference engine where if anything fails, goodbye motor. Timing chains aren't immune when they depend on plastic parts to keep in time.
+Especially on an interference engine where if anything fails, goodbye motor. Timing chains aren't immune when they depend on plastic parts to keep in time to prevent the pistons from smashing the valves.
 
 The only thing good about my car is the steering components (same as used on mustangs), suspension, engine, and transmission which are the most important parts.
 
