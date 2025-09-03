@@ -1,5 +1,9 @@
 # r
 
+"I do use my ears."
+
+---
+
 "We'll see.
 
 Some things were too big to fail.
