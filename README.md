@@ -1,5 +1,9 @@
 # r
 
+https://www.cdc.gov/nchs/data/databriefs/db483.pdf - Makes sense. They say over the hill.. Shit, they mean it literally.
+
+---
+
 "But, in the future, don't try to instill false hopes and have people waste their life-saving money on it. It's not right. I guess maybe you've learned, and the lesson was essentially free for you."
 
 "
