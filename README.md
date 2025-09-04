@@ -11,7 +11,7 @@ b) is preferrable when you're close to biting the big one, and at least there's 
 
 a) is like being blow torched in the face until dead.
 
-bars bars bars. I really am not a fan of em.
+bars clubs bars clubs bars. I really am not a fan of em.
 "
 
 https://www.youtube.com/shorts/kBla16xWfdo
