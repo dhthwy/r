@@ -1,5 +1,7 @@
 # r
 
+"But, in the future, don't try to instill false hopes and have people waste their life-saving money on it. It's not right. I guess maybe you've learned, and the lesson was essentially free for you."
+
 "
 Precisely. Fabulously. I'm glad you two are doing so well together.
 
