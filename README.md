@@ -1,5 +1,9 @@
 # r
 
+"Just the natural progression. If you don't get a good start then you're F'd, and EVERYONE and their dog will straight shit on you. It's just the way it is. Can't blame someone for being no different."
+
+---
+
 https://www.cdc.gov/nchs/data/databriefs/db483.pdf - Makes sense. They say over the hill.. Shit, they mean it literally.
 
 ---
