@@ -1,6 +1,9 @@
 # r
 
-"option a) squander on people who don't value you.
+"
+= not anti-social. I just haven't found anyone who isn't a jerk. So that's why so many preference people with college degrees. But their premise 'they must've learned to use brain over ass 'cause college' is wrong on so many facets.
+
+option a) squander on people who don't value you.
 
 option b) party with strangers - they may not value you but at least you get to party.
 
