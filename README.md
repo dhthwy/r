@@ -1,6 +1,6 @@
 # r
 
-"Just the natural progression. If you don't get a good start then you're F'd, and EVERYONE and their dog will straight shit on you. It's just the way it is. Can't blame someone for being no different."
+"Just the natural progression. If you don't get a good start then you're F'd, and EVERYONE and their dog will straight shit on you. Then you realize when you're old that the well is dry. It's just the way it is. Can't blame someone for being no different."
 
 ---
 
