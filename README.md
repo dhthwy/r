@@ -6,7 +6,7 @@ It is very interesting that I've said this about a 100 times so far, esp in the 
 
 Don't give a god damn what you say or what I think you say. It all turns to poopy when it gets real and your actions show me the opposite.
 
-Didn't matter that I was on my knees calling your name and begging. You had no troubles screwing me over in the midst of it. No kind words. Nothing. Absolutely nothing good. Well you got what you asked for!
+Didn't matter that I was on my knees calling your name and begging. You had no troubles screwing me over in the midst of it. No kind words. Nothing. Absolutely nothing good. Well you got what your actions asked for!
 
 ---
 
