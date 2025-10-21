@@ -4,7 +4,7 @@ At this point, it would take lots of time and room for only one to move me. We b
 
 Frankly, I really don't care anymore. Thinking of you only brings me pain, and discusts me. Too much time wasted, and no real chances to heal, and more time wasted continues to move me further away to the extent that I believe it's too late now.
 
-Better off alone, which I have been. No change there. Your promises are worth doodoo.
+Better off alone, which I always have been, because you never gave me the time even when you easily could have. Your promises are worth doodoo.
 
 ---
 
