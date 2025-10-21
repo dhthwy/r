@@ -1,5 +1,7 @@
 # r
 
+You didn't make room for two. You made room for only one. Screwing me over for other people is something you've always done. No more wasting time and money on people who don't care.
+
 https://genius.com/Whitney-houston-its-not-right-but-its-okay-lyrics
 
 I don't have anymore to waste on someone who doesn't care about me anyway.
