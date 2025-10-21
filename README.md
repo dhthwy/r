@@ -2,6 +2,8 @@
 
 You didn't make room for two. You made room for only one. Screwing me over for other people is something you've always done. No more wasting time and money on people who don't care.
 
+It is very interesting that I've said this about a 100 times so far, esp in the beginning of the year, and yet you didn't give a shit, and screwed me over anyway. :)
+
 https://genius.com/Whitney-houston-its-not-right-but-its-okay-lyrics
 
 I don't have anymore to waste on someone who doesn't care about me anyway.
