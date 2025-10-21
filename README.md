@@ -1,6 +1,8 @@
 # r
 
-lyin trash bitch parading as something respectable. OF WHICH YOU ARE NOT.
+<img width="276" height="214" alt="Screenshot_20251021_140438" src="https://github.com/user-attachments/assets/4098b468-9c48-4eaf-8f2a-ade4e68d2a5b" />
+
+
 
 I know you are a liar. You've been playing me from the start, and now you have your penis in on it with you.
 
