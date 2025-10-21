@@ -1,5 +1,13 @@
 # r
 
+https://genius.com/Whitney-houston-its-not-right-but-its-okay-lyrics
+
+```
+But I get it. It's no fun to build. Destroying is far more enjoyable.
+
+Really though, it's only fair if everyone can play at that game you and penis play.
+```
+
 I dub you a new nickname: Lipass
 
 How you figure you can fool after you had someone tell them how it really is, and then you back it up with actions. Can't go back after that. You can huddle and scheme new ways to fool, but you already let the cat outta the bag.
