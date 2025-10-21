@@ -1,5 +1,9 @@
 # r
 
+![life-ruiner](https://github.com/user-attachments/assets/8a22fb61-df64-4e71-82b2-3cfc65789f92)
+
+Makes you and penis so hawny. I know. That's why you're evil.
+
 https://genius.com/Whitney-houston-its-not-right-but-its-okay-lyrics
 
 ```
