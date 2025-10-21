@@ -4,9 +4,9 @@
 
 
 
-I know you are a liar. You've been playing me from the start, and now you have your penis in on it with you.
+I know you are a liar. You've been playing me from the start, and now you have your penis in on it with you. They already admitted the fact that you're playing me for a fool long ago.
 
-You're going to fuck with me like that after all the harm you caused? YOu fucking evil diabolical jerks. That motherfucker deserves it. By all means, push me.
+You're going to fuck with me like that after all the harm you caused? YOu fucking evil diabolical jerks.
 
 ---
 
