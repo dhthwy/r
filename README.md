@@ -1,5 +1,9 @@
 # r
 
+For me to get my footing back into the world, I can't entertain false hopes or subject myself to people who make me feel worthless as you do. I stopped believing in false hopes this year. You showed me enough. Not thru words but actions. Any chance of fixing that is highly unlikely, and is increasingly more unlikely with time. 
+
+---
+
 At this point, it would take lots of time and room for only one to move me. We both know that'll never happen. So it's out. Years vs zero, and you still didn't care to make time for me. A little bit doesn't incentivize or motivate me in any way after you showed me just how much time you do give to those you do care about.
 
 Frankly, I really don't care anymore. Thinking of you only brings me pain, and discusts me. Too much time wasted, and no real chances to heal, and more time wasted continues to move me further away to the extent that I believe it's too late now.
