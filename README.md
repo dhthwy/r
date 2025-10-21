@@ -1,8 +1,10 @@
 # r
 
-At this point, it would take lots of time and room for only one to move me. We both know that'll never happen. So it's out. Years vs zero, and you still didn't care to make time for me. A little bit doesn't incentivize or motivate me in any way after you showed me just how much time you give to those you do care about.
+At this point, it would take lots of time and room for only one to move me. We both know that'll never happen. So it's out. Years vs zero, and you still didn't care to make time for me. A little bit doesn't incentivize or motivate me in any way after you showed me just how much time you do give to those you do care about.
 
 Frankly, I really don't care anymore. Thinking of you only brings me pain, and discusts me.
+
+Better off alone.
 
 ---
 
