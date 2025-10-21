@@ -1,5 +1,9 @@
 # r
 
+I dub you a new nickname: Lipass
+
+How you figure you can fool after you had someone tell them how it really is, and then you back it up with actions. Can't go back after that. You can huddle and scheme new ways to fool, but you already let the cat outta the bag.
+
 <img width="276" height="214" alt="Screenshot_20251021_140438" src="https://github.com/user-attachments/assets/4098b468-9c48-4eaf-8f2a-ade4e68d2a5b" />
 
 
