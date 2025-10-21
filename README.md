@@ -1,5 +1,7 @@
 # r
 
+lyin trash bitch parading as something respectable. OF WHICH YOU ARE NOT.
+
 I know you are a liar. You've been playing me from the start, and now you have your penis in on it with you.
 
 You're going to fuck with me like that after all the harm you caused? YOu fucking evil diabolical jerks. That motherfucker deserves it. By all means, push me.
