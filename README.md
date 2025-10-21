@@ -1,24 +1,8 @@
 # r
 
-For me to get my footing back into the world, I can't entertain false hopes or subject myself to people who make me feel worthless as you do. I stopped believing in false hopes this year. You showed me enough. Not thru words but actions. Any chance of fixing that is highly unlikely, and is increasingly more unlikely with time. 
+I know you are a liar. You've been playing me from the start, and now you have your penis in on it with you.
 
----
-
-At this point, it would take lots of time and room for only one to move me. We both know that'll never happen. So it's out. Years vs zero, and you still didn't care to make time for me. A little bit doesn't incentivize or motivate me in any way after you showed me just how much time you do give to those you do care about.
-
-Frankly, I really don't care anymore. Thinking of you only brings me pain, and discusts me. Too much time wasted, and no real chances to heal, and more time wasted continues to move me further away to the extent that I believe it's too late now.
-
-Better off alone, which I always have been, because you never gave me the time even when you easily could have. Nope, you had to give 100% of that away. Your promises are worth doodoo.
-
----
-
-You didn't make room for two. You made room for only one. Screwing me over for other people is something you've always done. No more wasting time and money on people who don't care.
-
-It is very interesting that I've said this about a 100 times so far, esp in the beginning of the year, and yet your _actions_ didn't give a shit, and screwed me over anyway. :)
-
-Don't give a god damn what you say or what I think you say. It all turns to poopy when it gets real and your actions show me the opposite.
-
-Didn't matter that I was on my knees calling your name and begging. You had no troubles screwing me over in the midst of it. No kind words. Nothing. Absolutely nothing good. Well you got what your actions asked for!
+You're going to fuck with me like that after all the harm you caused? YOu fucking evil diabolical jerks. That motherfucker deserves it. By all means, push me.
 
 ---
 
