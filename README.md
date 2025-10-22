@@ -1,5 +1,8 @@
 # r
 
+![bitches-aint-shit-hoes-and-tricks-1225233693](https://github.com/user-attachments/assets/8a07ff10-5504-43ea-9373-1f590a036d35)
+
+
 ```
 Penis: Let's tear this bozo down. Show him I win!
 
