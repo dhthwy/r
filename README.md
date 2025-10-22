@@ -1,5 +1,17 @@
 # r
 
+Made no time. Ever.
+
+No time Friday. No time Saturday. No time Sunday. Did they make time for others? They sure did!
+
+No time ever. No time for a conversation. No time for in-person. Did they make time for others? They sure did!
+
+But wait. Penis said it was like that. Called it 100%.
+
+Lipass is a liar. Damn straight!
+
+---
+
 ![life-ruiner](https://github.com/user-attachments/assets/8a22fb61-df64-4e71-82b2-3cfc65789f92)
 
 Makes you and penis so hawny. I know. That's why you're evil.
