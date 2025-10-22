@@ -1,5 +1,21 @@
 # r
 
+```
+Penis: Let's tear this bozo down. Show him I win!
+
+Lipass: That's a wonderful idea!
+
+Penis: How do we do it?
+
+Lipass: I'll pretend to like him. We'll Set him up until he has nothing left? LOL!
+
+Penis: Evil. I love it!
+```
+
+But penis had loose lips. He had to brag about it.
+
+---
+
 Made no time. Ever.
 
 No time Friday. No time Saturday. No time Sunday. Did they make time for others? They sure did!
