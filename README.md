@@ -1,5 +1,8 @@
 # r
 
+https://www.youtube.com/shorts/GPG3htuRbWo
+
+---
 
 https://www.goodreads.com/quotes/42789-identity-is-memory-when-memory-disappears-the-self-dissolves-and
 
