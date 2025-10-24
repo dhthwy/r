@@ -4,7 +4,7 @@ If I were rich. No problems then.
 
 Hell, if I had a functional brain. I could fix things.
 
-Throwing things down the drain isn't helpful. It only sets the suck into stone.
+Throwing helpful things down the drain isn't helpful. It only sets the suck into stone.
 
 Unhirable. Wait too long, that too, will be set in stone.
 
