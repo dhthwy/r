@@ -1,35 +1,21 @@
 # r
 
-If I were rich. No problems then.
+"
+bidirectional lack of knowledge
 
-Hell, if I had a functional brain. I could fix things.
+bidirectional 'don't know who this is'
 
-Throwing helpful things down the drain isn't helpful. It only sets the suck into stone.
+gardens full of traps
 
-Unhirable. Wait too long, that too, will be set in stone.
+full of bad memories
 
----
+terrible screams in my ear
 
-https://www.goodreads.com/quotes/460142-if-you-fail-to-plan-you-are-planning-to-fail
+costs to do anything, and I mean anything
 
-https://www.goodreads.com/quotes/87476-a-goal-without-a-plan-is-just-a-wish
+chances to fix but they were snubbed, and not by me
 
-"Even if there was one. Don't even know if I can."
+so I don't know
+"
 
----
 
-https://www.youtube.com/shorts/GPG3htuRbWo
-
----
-
-https://www.goodreads.com/quotes/42789-identity-is-memory-when-memory-disappears-the-self-dissolves-and
-
-https://www.goodreads.com/quotes/607108-a-life-without-memory-is-no-life-at-all
-
-you are rich in good memories.
-
-I have none that are any good.
-
-there's the difference.
-
-enjoy the holidays, and the new rich memories. Youth is short.
