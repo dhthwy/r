@@ -1,3 +1,5 @@
+your motto "do harm. where and whenever you can do harm." you have succeeded numerous times!
+
 whether i find someone who appreciates me i dont know. what i do know is thatll never happen if keep wasting my time with your unappreciative ass. penis already told me thats a fact, then you backed it up via empower not once but twice.
 
 to piss on me like that knowing all that came before makes them an asshole in my book :)
