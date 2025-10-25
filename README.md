@@ -1,3 +1,5 @@
+You chose one. You didn't give a damn about your promises or correcting wrongs. You just added more wrongs. Disregarded me completely. Doubt theres any going back.
+
 the year of teaching me how you really feel. I got the picture. 
 
 shared everything with them while simultaneously blocking even a convo. This is what you wanted.
