@@ -9,7 +9,7 @@ not rich with unlimited funds to blow.
 
 can't take anymore bad memories.
 
-nothing changed between then and now.
+nothing effectively changed between then and now.
 "
 
 ---
