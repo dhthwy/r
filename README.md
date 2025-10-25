@@ -1,6 +1,20 @@
 # r
 
 "
+mostly just battered down to a broken dysfunctional mess.
+
+don't know how to fix it.
+
+not rich with unlimited funds to blow.
+
+can't take anymore bad memories.
+
+nothing changed between then and now.
+"
+
+---
+
+"
 bidirectional lack of knowledge
 
 bidirectional 'don't know who this is'
