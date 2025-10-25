@@ -1,3 +1,5 @@
+whether i find someone who appreciates me i dont know. what i do know is thatll never happen if keep wasting my time with your unappreciative ass.
+
 You chose one. You didn't give a damn about your promises or correcting wrongs. You just added more wrongs. Disregarded me completely. Doubt theres any going back.
 
 the year of teaching me how you really feel. I got the picture. 
