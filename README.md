@@ -1,4 +1,4 @@
-shared everything with them. This is what you wanted.
+shared everything with them while simultaneously blocking even a convo. This is what you wanted.
 
 can't figure where you think there's any incentive. No different than any other stranger.
 
