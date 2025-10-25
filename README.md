@@ -1,4 +1,4 @@
-your motto "do harm. where and whenever you can do harm." you have succeeded numerous times!
+your team motto "do harm. where and whenever you can do harm." you have succeeded numerous times! asshole gonna be asshole. asshole gonna flock with asshole.
 
 whether i find someone who appreciates me i dont know. what i do know is thatll never happen if keep wasting my time with your unappreciative ass. penis already told me thats a fact, then you backed it up via empower not once but twice.
 
