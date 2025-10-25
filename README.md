@@ -1,3 +1,5 @@
+the year of teaching me how you really feel. I got the picture. 
+
 shared everything with them while simultaneously blocking even a convo. This is what you wanted.
 
 can't figure where you think there's any incentive. No different than any other stranger.
