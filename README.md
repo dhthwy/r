@@ -1,16 +1,13 @@
-your team motto "do harm. where and whenever you can do harm." you have succeeded numerous times! asshole gonna be asshole. asshole gonna flock with asshole.
 
-whether i find someone who appreciates me i dont know. what i do know is thatll never happen if keep wasting my time with your unappreciative ass. penis already told me thats a fact, then you backed it up via empower not once but twice.
+not my sunshine.
 
-to piss on me like that knowing all that came before makes them an asshole in my book :)
+you only served to amplify the dark for me.
 
-You chose one. You didn't give a damn about your promises or correcting wrongs. You just added more wrongs. Disregarded me completely. Doubt theres any going back.
+in fact treated me as if i was dead already.
 
-the year of teaching me how you really feel. I got the picture. 
+got all kinds of people to do that too.
 
-shared everything with them while simultaneously blocking even a convo. This is what you wanted.
+you have your satan 2 to help you.
 
-can't figure where you think there's any incentive. No different than any other stranger.
+you showed me enough this year.
 
-
-not me you care about, or I wouldn't have been screwed over when i was positive seeking positive.
