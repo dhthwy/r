@@ -11,7 +11,7 @@ https://elevatesociety.com/indifference-to-me-is-the/
 
 ---
 
-If for whenever you make a stand for someone, and in return they bring forth darkness, they're the devil.
+Darkness is evil.
 
 How do you live for the devil, for evil?
 
