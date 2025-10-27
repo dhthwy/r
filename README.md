@@ -1,4 +1,16 @@
 
+I get it. I do. But your apathy for me has murdered all that was good in me.
+
+Lots of positive when I made my stands... until your apathy showed over and over and over again.
+
+It's not right to toy with people.
+
+---
+
+https://elevatesociety.com/indifference-to-me-is-the/
+
+---
+
 If for whenever you make a stand for someone, and in return they bring forth darkness, they're the devil.
 
 How do you live for the devil, for evil?
