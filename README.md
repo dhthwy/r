@@ -7,7 +7,7 @@ For many days, your apathy spoke clearly that you didn't give a damn. Screaming 
 
 Knew exactly where I was at. Both times empowered fucked me over.
 
-Can't believe I'm out 10k and several years of battery for nothing. for some bitch that didn't care for me anyway. Fuck you every single day, lipass.
+Can't believe I'm out 10k and several years of battery for nothing. for some bitch that didn't care for me anyway. Fuck you every single day, lipass. You straight shit all over people's seed money. You loves that huh? Didn't even want any of it lol. It's much much more fun to destroy! You and your fuckin penis.
 
 
 ---
