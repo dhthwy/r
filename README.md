@@ -1,31 +1,16 @@
 
+You knew what side I was on. I know because Penis told me.
+
+For many days, your apathy spoke clearly that you didn't give a damn. Screaming on my knees for you, and you didn't have a care in the world - cause you were too busy riding penis.
+
+Knew exactly where I was at. Both times empowered fucked me over.
+
+Can't believe I'm out 10k and several years of battery for nothing. for some bitch that didn't care for me anyway. Fuck you every single day, lipass.
+
+
+---
+
 https://www.healthline.com/health/apathy - The only gift you gave me. Got it all up in me now. All those memories of your apathy.
 
 I get it. I do. But your apathy for me has murdered all that was good in me.
 
-Lots of positive when I made my stands... until your apathy showed over and over and over again.
-
-It's not right to toy with people.
-
----
-
-https://elevatesociety.com/indifference-to-me-is-the/
-
----
-
-Darkness is evil.
-
-How do you live for the devil, for evil?
-
-
-```
-1In the beginning God created the heaven and the earth. 2And the earth was without form, and void; and darkness was upon the face of the deep. And the Spirit of God moved upon the face of the waters.
-
-The First Day: Light
-
-3And God said, Let there be light: and there was light. 4And God saw the light, that it was good: and God divided the light from the darkness. 5And God called the light Day, and the darkness he called Night. And the evening and the morning were the first day.
-
-The Second Day: Firmament
-
-6And God said, Let there be a firmament in the midst of the waters, and let it divide the waters from the waters. 7And God made the firmament, and divided the waters which were under the firmament from the waters which were above the firmament: and it was so. 8And God called the firmament Heaven. And the evening and the morning were the second day.
-```
