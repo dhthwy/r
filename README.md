@@ -1,5 +1,13 @@
 
- Absolutely dumbfounding to me. A few minute convo would've made everything better. Makes no sense to keep everything in the shit. But I had no say in it. I begged begged and begged some more! 
+"Not caring much for me is fine. That I could deal with. 
+
+It's the indifference.
+
+Money wouldn't have been an issue. But for most people, throwing away 'lots' of money for nothing is harmful.
+
+I needed out. Isolation makes you DUMB. Hearing loss and isolation known to cause cognitive decline.
+
+All I asked for was help de-isolating. Make someone feel like they aren't alone."
 
 https://www.youtube.com/watch?v=E1fzJ_AYajA
 
