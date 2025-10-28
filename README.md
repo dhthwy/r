@@ -1,3 +1,6 @@
+"I didn't gain anything. I was simply beaten when I was down. Robbed of all human contact. Every time I try. That's how it always goes. Thanks again for giving me more of the same."
+
+---
 
 "
 Let's not talk about time where you have given me zero and excluded me multiple times.
