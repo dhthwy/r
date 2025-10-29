@@ -1,4 +1,32 @@
-"I didn't gain anything. I was simply beaten when I was down. Robbed of all human contact. Every time I try. That's how it always goes. Thanks again for giving me more of the same lifetime experiences."
+
+"
+Recall that I remember everything.
+
+"I'm most important."
+
+"I take priority."
+
+"Forget him. He can wait."
+
+Right in the midst of me on my knees, and begging for a little convo. I mean, what else could I expect? That was all I needed to set things right.
+
+You were just fine with leaving me to rot.
+
+Obviously, or you wouldn't have ran off without so much as a word.
+
+But you wouldn't treat them that way.
+
+Now I have major changes coming up. One of the reasons I pleaded so much. Without your input, my decisions are based on me alone.
+
+Might be too late now.
+
+Your choice. I did what I could.
+
+There was no way to know what I could do and what I couldn't do. Only had history to go by.
+
+It was up to you to show me. But you also screwed me over at the same time. All that waiting for nada.
+
+"
 
 ---
 
