@@ -1,3 +1,6 @@
+thats a red flag. duh duh red flag. i remember that from lyin lipass. reminisce all the sweet memories of you fucking me over. you and dick loves to talk shit. fuck you again life ruiner.
+
+
 https://genius.com/Michael-jackson-they-dont-care-about-us-lyrics
 
 "Good luck.
