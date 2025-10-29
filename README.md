@@ -1,3 +1,4 @@
+https://genius.com/Michael-jackson-they-dont-care-about-us-lyrics
 
 "Good luck.
 
