@@ -1,4 +1,10 @@
 
+"I simply just don't have anymore time and money to waste on someone who absolutely 100% unequivocally proved that spending an additional 2 minutes of time on  hard cock was more important than an outrageously expensive 2 minute convo of which I had paid and been waiting for all my life.
+
+That blow was too much for me to bear."
+
+---
+
 "
 Recall that I remember everything.
 
