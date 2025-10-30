@@ -1,5 +1,7 @@
-thats a red flag. duh duh red flag. i remember that from lyin lipass. reminisce all the sweet memories of you fucking me over. you and dick loves to talk shit. fuck you again life ruiner.
 
+https://genius.com/Lifeisspirals-fill-me-with-lead-lyrics
+
+https://genius.com/Boondox-betrayal-lyrics
 
 https://genius.com/Michael-jackson-they-dont-care-about-us-lyrics
 
