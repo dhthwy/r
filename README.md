@@ -1,4 +1,12 @@
 
+"
+I know I said a lot of stupid things. I wasn't trying to replace anyone, or step on anyones toes.
+
+Just insane, and ill I guess.
+"
+
+---
+
 "I'm not as nasty as I seem.
 
 I'm just... ill when I'm inside of this ill.
