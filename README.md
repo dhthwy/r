@@ -1,4 +1,8 @@
 
+https://youtu.be/J3Z7GkT4GqA?t=76
+
+---
+
 https://www.youtube.com/watch?v=n78Ro2J1pYM&t=53s
 
 that's how i feel. that's not funny.
