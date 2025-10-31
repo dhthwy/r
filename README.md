@@ -1,4 +1,14 @@
 
+"I'm not as nasty as I seem.
+
+I'm just... ill when I'm inside of this ill.
+
+If we had ever talked, you would know.
+
+On the plus side. I haven't had a cigarette in at least a week or more.
+"
+
+
 https://youtu.be/J3Z7GkT4GqA?t=76
 
 ---
