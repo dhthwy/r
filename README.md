@@ -1,5 +1,7 @@
 https://www.youtube.com/watch?v=A9sd10CHAP8 - All hail trump
 
+https://www.youtube.com/watch?v=lwx2ce_AyOE
+
 ---
 
 https://static01.nyt.com/images/2025/10/31/multimedia/31bright1-kzft/31bright1-kzft-mobileMasterAt3x-v3.jpg
