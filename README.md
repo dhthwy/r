@@ -1,4 +1,4 @@
-https://static01.nyt.com/images/2025/10/31/multimedia/31bright1-kzft/31bright1-kzft-mobileMasterAt3x-v3.jpg?width=1800&quality=75&auto=webp&disable=upscale
+https://static01.nyt.com/images/2025/10/31/multimedia/31bright1-kzft/31bright1-kzft-mobileMasterAt3x-v3.jpg
 
 
 https://www.nytimes.com/interactive/2025/10/31/opinion/trump-autocracy-democracy-report.html?smid=nytcore-ios-share&referringSource=articleShare
