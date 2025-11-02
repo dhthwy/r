@@ -1,24 +1,11 @@
-"Crazy train"
 
----
+"Isn't it annoying how private powers use that advantage to undercut business?"
 
-Thinking about it only makes me angry.
+"You use privacy to establish the arena.
 
-"blah blah blah who am i? who am i?" "Gee I don't know"
+Otherwise it's just academic due to practical futility as has been shown."
 
-Doesn't get anywhere.
 
----
-
-No way for anyone to know who I am, nor is there anything I can say at this point to make that known.
-
----
-
-"Rambles..apologies..rambles"
-
-"Let it go."
-
-That has to happen again, I'm jut not sure how when I can't be me, and alternative hasn't been established.
 
 
 
