@@ -1,3 +1,10 @@
+
+<img width="648" height="431" alt="Screenshot_20251102_232514" src="https://github.com/user-attachments/assets/234a26d5-517e-42c4-b191-036b6bad83d8" />
+
+"All the trump cards you used against me still felt as keenly."
+
+---
+
 https://www.youtube.com/watch?v=A9sd10CHAP8 - All hail trump
 
 https://www.youtube.com/watch?v=lwx2ce_AyOE
