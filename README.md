@@ -1,36 +1,26 @@
 
+"I'm sorry. I don't know if there is any way out for me.
+
+We spend time with those we care about.
+
+You claim: 'I can't do anything.' for years
+
+Then suddenly you can, but, as demonstrated,  none of it was for me. Not even a second.
+
+There was always something better to do. Always a trump card to play.
+
+All the wrongs just buried me deeper and deeper.
+
+Climb the mountain they say. The only thing I found was empty space. Just like always.
+
+I've been remade into this thing. Year after year.
+
+Who is going to care for an old f'd up broken thing.
+
+Why tear people down to this extent?
+
+Don't tell people to climb mountains when you know there is nothing at the top.
+"
+
 <img width="648" height="431" alt="Screenshot_20251102_232514" src="https://github.com/user-attachments/assets/234a26d5-517e-42c4-b191-036b6bad83d8" />
-
-"All the trump cards you used against me still felt as keenly."
-
----
-
-https://www.youtube.com/watch?v=A9sd10CHAP8 - All hail trump
-
-https://www.youtube.com/watch?v=lwx2ce_AyOE
-
----
-
-https://static01.nyt.com/images/2025/10/31/multimedia/31bright1-kzft/31bright1-kzft-mobileMasterAt3x-v3.jpg
-
-
-https://www.nytimes.com/interactive/2025/10/31/opinion/trump-autocracy-democracy-report.html?smid=nytcore-ios-share&referringSource=articleShare
-
----
-
-"Failure to learn from history is how mistakes are repeated. Keep it locked, as is per the usual, and nothing is learned. We choose what we want. The world was shaped based on that."
-
-"Jesus wasn't resurrected on Sunday, tho that was the claim by private powers. The people waiting all day for days for resurrection were only met with extreme disappointment."
-
-"That applies universally, but from the interpersonal perspective, the fact you never seemed to give a damn makes me very unhappy."
-
-"Isn't it annoying how private powers use that advantage to undercut business?"
-
-"You use privacy to establish the arena.
-
-Otherwise it's just academic due to practical futility as has been shown."
-
-
-
-
 
