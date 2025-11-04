@@ -1,3 +1,6 @@
+"Guess we'll see if I can fix myself"
+
+---
 
 "I'm sorry. I don't know if there is any way out for me.
 
