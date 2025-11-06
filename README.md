@@ -1,3 +1,7 @@
+https://www.youtube.com/shorts/7e1Ayr2rOUs - "What interviews are like"
+
+---
+
 "If I were only just a little bit better I'd be ok.
 
 I could solve problems to avoid or mitigate big costly set backs.
