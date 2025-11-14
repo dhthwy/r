@@ -1,3 +1,4 @@
+https://www.helpcame.com/post/russian-soldiers-castrating-ukrainian-prisoner-of-war
 
 "Glad you and your people are doing super well together."
 
