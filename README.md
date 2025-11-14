@@ -1,3 +1,7 @@
+"It is hard to swallow having lost 10k for a noone. But swallow it shall.
+
+Figured I learned my lesson long ago - never mess with online people. It only leads to all loss, no gain."
+
 https://www.helpcame.com/post/russian-soldiers-castrating-ukrainian-prisoner-of-war
 
 "Glad you and your people are doing super well together."
