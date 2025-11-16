@@ -1,3 +1,5 @@
+https://www.goodreads.com/quotes/5934-i-ve-learned-that-people-will-forget-what-you-said-people
+
 "The only real thing you've shown me is that it is _always_ more important to smoke penis than to take a short break to say hello to me.
 
 Doesn't matter the expense.
