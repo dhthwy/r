@@ -1,5 +1,7 @@
 # r
 
+https://time.com/7337980/pete-hegseth-admiral-frank-bradley-kill-command-drug-boat-strike/
+
 I could be nicer. Sure.
 
 I was wrong, it wasn't nothing. It was violence. You gave me that. Sure.
