@@ -1,11 +1,17 @@
 # r
 
-Now I dully informed you long ago, and more than once, that I was in danger, and not only from your end.
+I could be nicer. Sure.
 
-Therefore I can't piss away any more money for nothing, which is all you've ever given.
+I was wrong, it wasn't nothing. It was violence. You gave me that. Sure.
 
-Especially just for you to turn your back on me after everything, and you did so more than once.
+It's just hard to be nice to people who have only sought to attack me, and use others to attack me. :)
 
-Frankly any swingin dick that was ok with doing that to me, at any point, is a pos. The first reaction- to attack and shit on me who was _supposed_ to be your friend, is usually the most truthful one- their REAL self. I'd never trust that. Such 'lovely' people you have. Real nice. Take you and your personal friend attacker guard dog and shove it.
+For them. Love.
 
-You lost all credibility with me, and destroyed anything there was and might've been.
+FOr me. Hate. Violence. Indifference. Pee. Doody.
+
+Hmph. That's exactly what I get here! As I speak with a bruised larynx and threatened to be put in jail for defending myself against being strangled LOL.
+
+Thank you so much for giving me more of the same!
+
+I'll always remember your gifts.
