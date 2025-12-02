@@ -6,6 +6,6 @@ Therefore I can't piss away any more money for nothing, which is all you've ever
 
 Especially just for you to turn your back on me after everything, and you did so more than once.
 
-Frankly any swingin dick that was ok with doing that to me, at any point, is a pos. The first reaction- to attack and shit on me who was _supposed_ to be your friend, is usually the most truthful one- their REAL self. I'd never trust that. Such 'lovely' people you have. Real nice. Take you and your guard dog and shove it.
+Frankly any swingin dick that was ok with doing that to me, at any point, is a pos. The first reaction- to attack and shit on me who was _supposed_ to be your friend, is usually the most truthful one- their REAL self. I'd never trust that. Such 'lovely' people you have. Real nice. Take you and your personal friend attacker guard dog and shove it.
 
 You lost all credibility with me, and destroyed anything there was and might've been.
