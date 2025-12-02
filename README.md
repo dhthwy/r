@@ -1,19 +1,14 @@
 # r
 
-https://time.com/7337980/pete-hegseth-admiral-frank-bradley-kill-command-drug-boat-strike/
+Maybe there is no floor anyone knows.
 
-I could be nicer. Sure.
+The floor = death.
 
-I was wrong, it wasn't nothing. It was violence. You gave me that. Sure.
+life threatening situations all the time.
 
-It's just hard to be nice to people who have only sought to attack me, and use others to attack me. :)
+No one there.
 
-For them. Love.
+It's a nightmare.
 
-FOr me. Hate. Violence. Indifference. Pee. Doody.
 
-Hmph. That's exactly what I get here! As I speak with a bruised larynx and threatened to be put in jail for defending myself against being strangled LOL.
 
-Thank you so much for giving me more of the same!
-
-I'll always remember your gifts.
