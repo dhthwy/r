@@ -1,8 +1,8 @@
 # r
 
-Flake
+100% Flake - one who absolutely never followed through.
 
-Somebody who almost never follows through on their word. A true flake will tell you they'll "Totally come" to an event that you put endless effort into organizing up until the day before, and then the day of the said event they're not showing up nor answering your calls or texts. These types of people are the masterminds at taking advantage of your kindness. Their constant flaking out not only succeeds in blatantly using you for your known kindness. No. When you see people flake on you, it makes you feel bad about yourself wondering what you did to make them do something like that. 
+Flake - Somebody who almost never follows through on their word. A true flake will tell you they'll "Totally come" to an event that you put endless effort into organizing up until the day before, and then the day of the said event they're not showing up nor answering your calls or texts. These types of people are the masterminds at taking advantage of your kindness. Their constant flaking out not only succeeds in blatantly using you for your known kindness. No. When you see people flake on you, it makes you feel bad about yourself wondering what you did to make them do something like that. 
 
 Flaking out subtly says "My time is more important than your time" or, better yet, "Your time don't mean shit to me." Flakes are unneeded negative energy in your life. It is recommended that you keep contact with these selfish pricks to a bare minimum, if at all.
 "I have zero tolerance for flakes. Nobody will take advantage of me like that."
