@@ -1,5 +1,9 @@
 # r
 
+<img width="726" height="519" alt="Screenshot_20251202_234129" src="https://github.com/user-attachments/assets/0d3b08ab-df2a-493a-921b-c3d14b98eff9" />
+
+i blame you for turning me into a troll.
+
 https://youtube.com/shorts/OcYmg6hFzwo?si=T_KH3_pW11dbv7MT
 
 if i was on my death which i am hospice would say gibbem meds he suffer too much
