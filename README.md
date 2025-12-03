@@ -1,5 +1,7 @@
 # r
 
+https://youtube.com/shorts/OcYmg6hFzwo?si=T_KH3_pW11dbv7MT
+
 if i was on my death which i am hospice would say gibbem meds he suffer too much
 
 have u considered what life would be like if u werny an ass?
