@@ -1,5 +1,7 @@
 # r
 
+steaming pile of mest do you know how thst feels. no. lost life too much pain need moprhinr 
+
 people dying.
 
 ambushed from all sides.
