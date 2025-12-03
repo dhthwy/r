@@ -1,5 +1,9 @@
 # r
 
+if i was on my death which i am hospice would say gibbem meds he suffer too much
+
+have u considered what life would be like if u werny an ass?
+
 there once was a girl named venus whose body was shaped like a
 
 steaming pile of mest do you know how thst feels. no. lost life too much pain need moprhinr 
