@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=Plm5vQVOCwc&t=160s
+
 Hos successus alit
 
 Timeo danaos et dona ferentes
