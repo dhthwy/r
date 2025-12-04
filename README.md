@@ -1,5 +1,13 @@
 # r
 
+Hos successus alit
+
+Timeo danaos et dona ferentes
+
+gratulatur mentula et asinum
+
+---
+
 100% Flake - one who absolutely never followed through.
 
 Flake - Somebody who almost never follows through on their word. A true flake will tell you they'll "Totally come" to an event that you put endless effort into organizing up until the day before, and then the day of the said event they're not showing up nor answering your calls or texts. These types of people are the masterminds at taking advantage of your kindness. Their constant flaking out not only succeeds in blatantly using you for your known kindness. No. When you see people flake on you, it makes you feel bad about yourself wondering what you did to make them do something like that. 
