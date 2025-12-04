@@ -1,5 +1,7 @@
 # r
 
+https://youtu.be/WpiVJbVrvu8?t=1009
+
 https://www.youtube.com/watch?v=Plm5vQVOCwc&t=160s
 
 Hos successus alit
