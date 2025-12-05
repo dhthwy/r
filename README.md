@@ -1,5 +1,15 @@
 # r
 
+https://www.psychologytoday.com/us/blog/brain-sense/201405/does-success-breed-success
+
+"Apparently flake breeds flake too.
+
+Some people won't ever understand these things or the damage they cause.
+
+They just don't care. Which is typical of dicks."
+
+---
+
 https://www.reddit.com/r/technology/comments/1pcht0m/zig_quits_github_says_microsofts_ai_obsession_has/
 
 "I suppose Hanlon’s razor could apply here (“Never attribute to malice that which is adequately explained by stupidity”) but even though these C-levels are often absolute dipshits, they are extremely clear eyed about the potential implications for labor costs.
