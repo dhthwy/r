@@ -1,5 +1,11 @@
 # r
 
+![IMG_0260](https://github.com/user-attachments/assets/da7f31df-3d6b-424f-8d1d-f38bcb3e406e)
+
+"Or be an inconsiderate cunt, and surround yourself with people who make you 10x more of a cunt."
+
+---
+
 https://www.psychologytoday.com/us/blog/brain-sense/201405/does-success-breed-success
 
 "Apparently flake breeds flake too.
