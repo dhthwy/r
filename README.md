@@ -1,5 +1,11 @@
 # r
 
+https://themindsjournal.com/signs-of-an-inconsiderate-person-clues-you/
+
+<img width="556" height="558" alt="Screenshot_20251205_111423" src="https://github.com/user-attachments/assets/263ab533-1752-46ab-9376-579d447e3d74" />
+
+
+
 ![IMG_0260](https://github.com/user-attachments/assets/da7f31df-3d6b-424f-8d1d-f38bcb3e406e)
 
 "Or be an inconsiderate cunt, and surround yourself with people who make you 10x more of a cunt."
