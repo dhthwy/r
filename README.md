@@ -1,5 +1,20 @@
 # r
 
+"
+
+Those weren't mistakings. They were flakings.
+
+The real test of that is simple: did you ever do that to them? and the answer is easy: "no! you would never!""
+
+It's ok. You destroy people for other people even when it isn't necessary. So when you unnecessarily did it again, I knew, It's just your style. Never changed. Kept on with your inconsiderate self.
+
+We all live with our choices.
+
+I bit the big one when I chose to speak to you. It was like hopping in a car with Ted Bundy.
+"
+
+---
+
 https://themindsjournal.com/signs-of-an-inconsiderate-person-clues-you/
 
 <img width="556" height="558" alt="Screenshot_20251205_111423" src="https://github.com/user-attachments/assets/263ab533-1752-46ab-9376-579d447e3d74" />
