@@ -1,10 +1,9 @@
 # r
 
 
+https://www.youtube.com/watch?v=Rs5qwfaZl_Y
 
-"But
-
-https://www.youtube.com/shorts/zyAY4h80v-c"
+"What you have now is what you got. Life is short. Not many holidays left! Enjoy it with those you're with!"
 
 ---
 
