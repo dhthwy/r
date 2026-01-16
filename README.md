@@ -1,5 +1,8 @@
 # r
 
+<img width="776" height="611" alt="angel" src="https://github.com/user-attachments/assets/ec4b6d10-3fa4-4ba9-92ed-7f5ad54258b4" />
+
+"In the name of God, St. Michael, and St. George, I dub bman angel of God. Be valiant, courteous, and loyal."
 
 https://www.goodreads.com/quotes/8139848-the-democracy-of-to-day-hold-the-liberty-of-one-man
 
