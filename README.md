@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/watch?v=GS3npSv8iuM&t=187s
+
+"Go stuff your face with Lester's cock you arrogant perfidious machiavellian monkey"
+
 "All established understandings and agreements were all flushed down the toilet last year. Made sure I wasted bands to learn it the hard way too.
 
 Not only did you take freedom and bands away from me. You both made sure I knew it with your bragamoo and mockadoodledoo.
