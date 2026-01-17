@@ -1,5 +1,8 @@
 # r
 
+https://www.youtube.com/watch?v=yqK8YeZYqbA
+
+https://genius.com/Mary-j-blige-no-more-drama-lyrics
 
 
 https://github.com/user-attachments/assets/1f14c4c9-8c71-441e-b706-f5bc19edba1f  - "YOU AND LESTERS SONG!"
