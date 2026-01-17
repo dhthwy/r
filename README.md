@@ -1,5 +1,25 @@
 # r
 
+"You wanna send someone to a nightmare. Send them there.
+
+Dr made shit up and tried to coerce me into admitting to it.
+
+Dr said I would remain there indefinitely until I confessed.
+
+I imagine weaker minded would've done so to get that wack job off their ass.
+
+I just kept telling him 'No I didn't.' And he kept saying 'Yes you did!' and we took that for a loop about a dozen times until the jerk quit.
+
+So I spent most of my time passing a ball with some kid.
+
+The nurses commented 'Hey! you're not a bad guy!"
+
+'We just think you're an alcoholic.'
+
+So I said 'na, I rarely drink. Just drank a 5th of henny I'd been saving by accident.'
+
+Nurse: 'well most people who drink that much would be passed out on the floor. But not you. You were an alert chatter mouth with a .350'"
+
 "
 https://www.youtube.com/watch?v=Nm6ccCpqUi8&t=35s
 
