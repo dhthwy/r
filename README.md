@@ -1,5 +1,25 @@
 # r
 
+"There shoulda been no tug-o-war shit.
+
+On one end we had: 'i'm jus tryna bust another nut na mean?'
+
+On the other: 'freedom please. beg beg beg. free us from this!'
+
+That shouldn't have even been up for discussion.
+
+We know what you chose. It's discusting.
+
+Told me all I needed to know about you.
+
+Also why I reference your edumucation. You should be able to think for yourself on these matters. Especially on social matters. That's what edumucation is for. ONLY YOU had the complete picture. You can try to 'tell' it but they will never have the same picture- there is a lot more than some words, AND they're pre-decided prejudicially biased anyway. So the only fair and right choice can come from you.
+
+If they respect you, they would have accepted any boundaries you set.
+
+But you made your choice and chose no to freedom. So either that was your right decision, or you let someone else destroy it. Either way, the result is the same.
+
+And if you have told me your choice respectfully instead of playing wastegirl to put a smile on their face, I would've been respectful about it. But you've never shown any of that for me before, so I'm not surprised."
+
 https://www.youtube.com/watch?v=yqK8YeZYqbA
 
 https://genius.com/Mary-j-blige-no-more-drama-lyrics
