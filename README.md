@@ -1,6 +1,6 @@
 # r
 
-
+"Whores a dime a dozen around me. Think I give a fuck about a hoe. You'll find out quick. You're no friend of mine then you're part of that dime."
 
 https://github.com/user-attachments/assets/c3bd4413-f3e1-4f68-92d9-d86fd313ee74
 
