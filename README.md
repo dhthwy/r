@@ -1,5 +1,31 @@
 # r
 
+"
+https://www.youtube.com/watch?v=Nm6ccCpqUi8&t=35s
+
+Little do you know that was the underlying reason I was arrested and committed into a hospital for evaluation for 3 days.
+
+You have no idea how badly you fucked me up.
+
+https://theconversation.com/henry-kissingers-bombing-campaign-likely-killed-hundreds-of-thousands-of-cambodians-and-set-path-for-the-ravages-of-the-khmer-rouge-209353
+
+Then Henry Kissinger plays the Cambodia card.
+
+That was OUR CHANCE to heal to right all wrongs, wipe the slate clean, and work together for a smooth sail to keep all happy rather than wrecking and stepping on toes in the darkness.
+
+NO ONE should have had the right to screw that up.
+
+That was a freedom play, and it was destroyed.
+
+Freedom from anguish, freedom from harm, freedom to find a happy way.
+
+DESTROYED.
+
+Just what the hell did you think my intentions were? NEVER before did I intentionally do anything to mess you up. I held back JUST TO KEEP from doing so! And I didn't wine like a little bitch about it either. No. I wined like a bitch when you were tearing apart my soul.
+
+I'm no god. I told you my hand. Said I needed a little help. Never over-played it.
+"
+
 <img width="776" height="611" alt="angel" src="https://github.com/user-attachments/assets/ec4b6d10-3fa4-4ba9-92ed-7f5ad54258b4" />
 
 "In the name of God, St. Michael, and St. George, I dub bman angel of God. Be valiant, courteous, and loyal."
