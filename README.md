@@ -1,5 +1,11 @@
 # r
 
+
+
+https://github.com/user-attachments/assets/1f14c4c9-8c71-441e-b706-f5bc19edba1f  - "YOU AND LESTERS SONG!"
+
+
+
 https://www.psychologytoday.com/us/blog/mindmelding/201706/9-clues-that-you-may-be-dealing-with-a-psychopath - "Discusting psychos"
 
 https://www.youtube.com/watch?v=GS3npSv8iuM&t=187s
