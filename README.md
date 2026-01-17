@@ -1,5 +1,7 @@
 # r
 
+https://www.psychologytoday.com/us/blog/mindmelding/201706/9-clues-that-you-may-be-dealing-with-a-psychopath - "Discusting psychos"
+
 https://www.youtube.com/watch?v=GS3npSv8iuM&t=187s
 
 "Go stuff your face with Lester's cock you arrogant perfidious machiavellian monkey"
