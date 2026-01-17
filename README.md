@@ -1,5 +1,8 @@
 # r
 
+<img width="1044" height="609" alt="Screenshot_20260117_173538" src="https://github.com/user-attachments/assets/e65ef40b-9a82-4e36-b926-4bd64ca45101" />
+
+
 "There shoulda been no tug-o-war shit.
 
 On one end we had: 'i'm jus tryna bust another nut na mean?'
