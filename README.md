@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=DoiR2UqktsE
+
 "I lost count of the # of times you snitched on me for the purpose of humiliation and harm over the course of 6 YEARS.
 
 At least several times? Your crackheads not only approved; THEY PATRONIZED AND MOCKED WITH YOU! It was YOU. It was YOU all along.
