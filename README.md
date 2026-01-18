@@ -1,5 +1,15 @@
 # r
 
+https://www.youtube.com/shorts/DWpQDNouuac
+
+https://www.youtube.com/shorts/xOG47E0WNEk
+
+https://www.youtube.com/watch?v=q9NyEDirxi4
+
+"It's a shame how they change and what they do for that rock."
+
+---
+
 https://www.youtube.com/shorts/X850BTQ9cGw
 
 "Whores a dime a dozen around me. Think I give a fuck about a hoe. You'll find out quick. You're no friend of mine then you're part of that dime."
