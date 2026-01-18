@@ -5,6 +5,8 @@
 At least several times? Your crackheads not only approved; THEY PATRONIZED AND MOCKED WITH YOU! It was YOU. It was YOU all along.
 
 This isn't about winning.
+
+Imagine someone robbed you of 10k and many many years, perhaps decades. How would you feel? What would you do?
 "
 
 https://www.youtube.com/shorts/DWpQDNouuac
