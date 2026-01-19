@@ -1,5 +1,38 @@
 # r
 
+https://youtu.be/6J-z55TEJIc?t=38
+
+https://www.youtube.com/watch?v=1w7OgIMMRc4 - "You ruined it."
+
+"Think I'd roll up to you when you refused to speak with me, after all the horrible things you did.
+
+We had to first talk to actually talk.
+
+No safety. No framework for coordinating. No way to know if you were even there. No way to know if I was welcome.
+
+Got people repeating the same ol' shit in my ear from long ago. That's how I know it's all coming from one source - YOU. Your blame game fell apart.
+
+You admitted yourself at the beginning of last year that you didn't have my back. No different than you saying 'no loyalty. don't care about you.'
+
+Think I'd roll up. That's the perfect place for you to fuck me over big. I have no reasonable excuse to be there.
+
+I'm not the irrational choice type.
+
+That you keep me on this speaker only shows your intent to double down on this long stretch of disrespect.
+"
+
+"As a young NBA player fresh out of the 2003 draft, one night out, Wade found himself standing next to one of his idols — Allen Iverson — not in an arena, but at a casino table. For most rookies, that moment would’ve ended with empty pockets and a story they’d regret. Instead, it revealed something far more important about Wade: his levelheadedness, self-awareness and a refusal to make irrational choices."
+
+“So I go with Eddie Jones, and he knew Allen Iverson was one of my favorite players, so he wanted to introduce me. And he introduced me to Iverson right there when they were gambling, so Iverson’s gambling and I’m standing there the whole time. And he threw me a $1,000 chip and was like, ‘Yo, go play this, young fella.’ So I played $500, and I put the other $500 in my pocket, because I didn’t have money like that at the time,” Wade recalled."
+
+"It would have been just as easy for Wade to put the full $1,000 all on black and never think about it again. After all, his rookie deal was lucrative as a lottery pick — but that wasn't his mentality even with generational wealth just around the corner.
+
+While many young players get swept up in the lifestyle, Wade instinctively understood restraint. Pocketing half the chip wasn’t fear — it was awareness. It was evidently also a stark difference from Iverson's mentality when it came to money."
+
+https://www.youtube.com/watch?v=Nxi-HBnKo88
+
+---
+
 https://www.youtube.com/watch?v=DoiR2UqktsE
 
 "I lost count of the # of times you snitched on me for the purpose of humiliation and harm over the course of 6 YEARS.
