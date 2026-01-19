@@ -2,6 +2,10 @@
 
 https://youtu.be/6J-z55TEJIc?t=38
 
+'Same ol' rhetoric. Same ol' plays. Same ol' people. Same ol' waste games.
+
+You speak of clarity. You certainly made your intent to waste clear.'
+
 https://www.youtube.com/watch?v=1w7OgIMMRc4 - "You ruined it."
 
 "Think I'd roll up to you when you refused to speak with me, after all the horrible things you did.
