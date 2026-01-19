@@ -4,6 +4,8 @@ https://youtu.be/6J-z55TEJIc?t=38
 
 'Same ol' rhetoric. Same ol' plays. Same ol' people. Same ol' waste games.
 
+I remember when I was too fucked up to drive after you wasted me. You just left me stranded. Then you turned your back and walked away. Some sweet memories.
+
 You speak of clarity. You certainly made your intent to waste clear.'
 
 https://www.youtube.com/watch?v=1w7OgIMMRc4 - "You ruined it."
