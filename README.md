@@ -35,7 +35,7 @@ That you keep me on this speaker only shows your intent to double down on this l
 
 While many young players get swept up in the lifestyle, Wade instinctively understood restraint. Pocketing half the chip wasn’t fear — it was awareness. It was evidently also a stark difference from Iverson's mentality when it came to money."
 
-https://www.youtube.com/watch?v=Nxi-HBnKo88
+https://www.youtube.com/watch?v=Nxi-HBnKo88 "If I could be a fly on the wall. That would make my millenia. I pray everyday."
 
 ---
 
