@@ -1,5 +1,15 @@
 # r
 
+"For me there were no other options. That was IT. The only thing I had without an inkling of freedom."
+
+"Now there's heaps of bad memories with nothing good in the sandwich."
+
+https://www.youtube.com/watch?v=1w7OgIMMRc4 "Used to think of you this way"
+
+"No I don't expect you to understand. That would first require caring."
+
+---
+
 https://ncte.org/blog/2017/01/martin-luther-king-jr/
 
 "One creature's suffering is another creature's delight. Didn't that bring you wide smiles last year?
