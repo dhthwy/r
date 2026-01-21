@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/FAqj2oUzwsk
+
 "For me there were no other options. That was IT. The only thing I had without an inkling of freedom."
 
 "Now there's heaps of bad memories with nothing good in the sandwich."
