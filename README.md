@@ -1,5 +1,7 @@
 # r
 
+https://ncte.org/blog/2017/01/martin-luther-king-jr/
+
 "One creature's suffering is another creature's delight. Didn't that bring you wide smiles last year?
 
 I'm not the type who capitalizes on another's misfortune when it comes to matters of injustice.
