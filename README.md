@@ -1,5 +1,7 @@
 # r
 
+"Oh, you don't think I have proof. You might be surprised of what the light can bring ;)  FUck my life right? Mockadoodledoo bragamoo fuck with me all year, right? Yeaaaah. My turn!"
+
 "Sure keep it on speaker, disrespectful hole. We can bring the light here.
 
 Glory Hole."
