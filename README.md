@@ -1,5 +1,9 @@
 # r
 
+"Sure keep it on speaker, disrespectful hole. We can bring the light here.
+
+Glory Hole."
+
 "I Don't Give A Fuck About That Lyin Bullshittin Slimey Sorry Excuse For A Human Anymore."
 
 https://www.youtube.com/watch?v=rSK8jTzl1Kw
