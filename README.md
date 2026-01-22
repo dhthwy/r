@@ -4,7 +4,8 @@
 
 https://www.youtube.com/watch?v=4z09qIekuFg&t=108s
 
-:D =D
+<img width="802" height="544" alt="Screenshot_20260122_095216" src="https://github.com/user-attachments/assets/59d53a70-675c-4c8b-89fd-88baceb04183" />
+
 
 "Shouldn't be giving away your secrets when you're a perfidious douche or worse yet have them shady characters participate in fucking me without a kiss.
 
