@@ -1,5 +1,7 @@
 # r
 
+<img width="605" height="560" alt="Screenshot_20260122_094930" src="https://github.com/user-attachments/assets/52bc319b-d88c-423a-b053-4d912c4818ce" />
+
 https://www.youtube.com/watch?v=4z09qIekuFg&t=108s
 
 :D =D
