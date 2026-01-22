@@ -1,6 +1,6 @@
 # r
 
-"Shouldn't be giving away your secrets or worse yet have them participate in fucking me without a kiss.
+"Shouldn't be giving away your secrets when you're a perfidious douche or worse yet have them shady characters participate in fucking me without a kiss.
 
 Got any substance between them eyes? Or is it just air?
 
