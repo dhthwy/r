@@ -1,5 +1,9 @@
 # r
 
+<img width="523" height="286" alt="Screenshot_20260122_101618" src="https://github.com/user-attachments/assets/a3984bd7-3f80-46ea-b919-0cca88694d27" /> "U wanna fuck me eh. Right here I'm spreading wide for you."
+
+
+
 <img width="1071" height="600" alt="Screenshot_20260122_100849" src="https://github.com/user-attachments/assets/b1a4b661-5a1d-443e-b902-c0498b81fd58" />
 
 <img width="605" height="560" alt="Screenshot_20260122_094930" src="https://github.com/user-attachments/assets/52bc319b-d88c-423a-b053-4d912c4818ce" />
