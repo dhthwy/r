@@ -3,6 +3,8 @@
 
 https://www.youtube.com/watch?v=rSK8jTzl1Kw
 
+https://genius.com/Ice-cube-no-vaseline-lyrics
+
 https://www.youtube.com/watch?v=Oy9LHIDtmGc
 
 https://www.youtube.com/watch?v=UrgpZ0fUixs
