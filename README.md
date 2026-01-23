@@ -1,5 +1,12 @@
 # r
 
+"I guess it's always nice to have people who happily carry on your traditions. Even if it's one of poo.
+
+But in doing so - you lost benefit of doubt and your word became trash.
+
+https://www.youtube.com/watch?v=Y4P14KKcKF4&t=98s
+"
+
 "It's no secret they've been pooping on me for nearly 6 years. Hell, they started off that way.
 
 Then it's 'Sorry, it came out by accident."
