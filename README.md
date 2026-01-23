@@ -12,4 +12,6 @@ I doubt there's anything now though. My gut told me that early last year and it 
 They're all yours. I mean 100%. Not even enough left for a chat. That's the way it's been and the way it is now.
 
 That's the way I see you now, which I think was the point you were making. Maybe I would've taken it better if you actually ever kind to me.
+
+https://www.youtube.com/shorts/FAqj2oUzwsk - guess that's how it went down
 "
