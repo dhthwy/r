@@ -7,7 +7,7 @@ Let it go.
 
 Fine.
 
-I doubt there's anything now though. 
+I doubt there's anything now though. My gut told me that early last year and it was right.
 
 They're all yours. I mean 100%. Not even enough left for a chat. That's the way it's been and the way it is now.
 "
