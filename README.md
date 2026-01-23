@@ -1,5 +1,7 @@
 # r
 
+https://www.quora.com/How-do-people-think-it-is-okay-to-kick-someone-when-they-are-down?topAns=1477743896256113
+
 "I guess it's always nice to have people who happily carry on your traditions. Even if it's one of poo.
 
 But in doing so - you lost benefit of doubt and your word became trash.
