@@ -1,51 +1,37 @@
 # r
 
-"Oh, you don't think I have proof. You might be surprised of what the light can bring ;)  FUck my life right? Mockadoodledoo bragamoo fuck with me all year, right? Yeaaaah. My turn!"
+"It's no secret they've been pooping on me for nearly 6 years. Hell, they started off that way.
 
-"Sure keep it on speaker, disrespectful hole. We can bring the light here.
+Then it's 'Sorry, it came out by accident."
 
-Glory Hole."
+Oh but then again and again 'Sorry, I can't control my ass.'
 
-"I Don't Give A Fuck About That Lyin Bullshittin Slimey Sorry Excuse For A Human Anymore."
+Before long, 'if anyone needs to go poopy, this is the one you flex your anus on'
 
-https://www.youtube.com/watch?v=rSK8jTzl1Kw
+I live in a nest of sandbags. What does it take for one to feel they have to live that way?
 
-https://genius.com/Ice-cube-no-vaseline-lyrics
+Peace? Freedom? None of that.
 
-https://www.youtube.com/watch?v=Oy9LHIDtmGc
+Everyone knew. No one cared.
 
-https://www.youtube.com/watch?v=UrgpZ0fUixs
+Only thing I had to change that. But no one cared.
 
-<img width="700" height="559" alt="Screenshot_20260122_103530" src="https://github.com/user-attachments/assets/add09fb7-c640-4c2a-8544-07d360305a28" />
+All this 'inclusion' bidness but it was really exclusion for the pooped on.
 
+See what I mean? Problem is, there was no getting any point across.
 
-<img width="523" height="286" alt="Screenshot_20260122_101618" src="https://github.com/user-attachments/assets/a3984bd7-3f80-46ea-b919-0cca88694d27" /> "U wanna fuck me eh. Right here I'm spreading wide for you."
+Even if they appeared to get the point - it evaporates out they head by the next day.
 
+Speaker? Is still being pooped on.
 
+I gave them the benefit of the doubt for most of that stretch. Sure sometimes I forgot to, but 99% of the time I retained it.
 
-<img width="1071" height="600" alt="Screenshot_20260122_100849" src="https://github.com/user-attachments/assets/b1a4b661-5a1d-443e-b902-c0498b81fd58" />
-
-<img width="605" height="560" alt="Screenshot_20260122_094930" src="https://github.com/user-attachments/assets/52bc319b-d88c-423a-b053-4d912c4818ce" />
-
-https://www.youtube.com/watch?v=4z09qIekuFg&t=108s
-
-<img width="802" height="544" alt="Screenshot_20260122_095216" src="https://github.com/user-attachments/assets/59d53a70-675c-4c8b-89fd-88baceb04183" />
+It's a damn shame. It's a damn waste. Not what I wanted. But can't really do anything about it when you're excluded, and people are acting like your enemy.
 
 
-"Shouldn't be giving away your secrets when you're a perfidious douche or worse yet have them shady characters participate in fucking me without a kiss.
+https://github.com/user-attachments/assets/2ec6e12c-0bcd-4295-9345-df8ce217e388
 
-Got any substance between them eyes? Or is it just air?
+
 
 "
 
-https://youtu.be/m1hQnwJmHho?t=80
-
-"
-Yeah. Fuck you.
-
-https://www.youtube.com/watch?v=6J-z55TEJIc&t=38s
-
-I can still spill much.
-
-I'm simply matching your loyalty ;)
-"
