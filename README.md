@@ -1,5 +1,7 @@
 # r
 
+https://qr.ae/pCV4jF
+
 "
 I was letting it go. Just don't appreciate bullshit and repeat of the same.
 
