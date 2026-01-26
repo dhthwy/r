@@ -2,7 +2,7 @@
 
 https://www.youtube.com/shorts/PGbDXF71LE0
 
-https://www.youtube.com/shorts/-AusCTZwSR8
+https://www.youtube.com/shorts/-AusCTZwSR8 - "he's got chimpanzee muscles"
 
 https://www.youtube.com/shorts/S3BRG0fYEXY
 
