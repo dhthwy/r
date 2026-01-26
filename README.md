@@ -1,5 +1,11 @@
 # r
 
+https://www.youtube.com/shorts/-AusCTZwSR8
+
+https://www.youtube.com/shorts/S3BRG0fYEXY
+
+---
+
 https://qr.ae/pCV4jF
 
 "
