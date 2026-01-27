@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=lj5GXZaE7qs
+
 "I won't be buying any new cars any time soon. Fuck that. Just like everything else, they're degrading survivability for fancy features and fuel effeciency. People don't even know how to use mirrors anymore.
 
 They put computer chips all over the whole vehicle, and there are many instances of people being left walking since they're all interconnected via the CAN bus, so when one fails the whole car electrical system falls apart. Oh and it's not like they're protecting all of these electrical computer boards from corrosion and such. Nah, why do that? They'd prefer you to buy another car in 10 years or 150k miles if it even lasts that long. So figure on $350/mo to keep a damn car + insurance + repairs and maintenance on top of that. And ofc, that 350 is if you save for a 40k car yourself.
