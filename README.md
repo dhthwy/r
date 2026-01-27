@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/shorts/dHizPgoGD5Y - "This guy makes a living helping others. From what I gather, he used to be struggling in the dumps. He worked at oreilly auto parts just 3-4 years ago? Min wage job. I don't know whether he came into some money to help him get started or if he did it all on his own but apparently by way of his acts of kindness, he's actually doing quite well for himself too. Actually, they do it as a couple."
+
+---
+
 https://www.youtube.com/watch?v=tiG3HziMjWI - "For many, this is what getting old is like."
 
 ---
