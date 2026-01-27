@@ -1,5 +1,14 @@
 # r
 
+"I won't be buying any new cars any time soon. Fuck that. Just like everything else, they're degrading survivability for fancy features and fuel effeciency. People don't even know how to use mirrors anymore.
+
+They put computer chips all over the whole vehicle, and there are many instances of people being left walking since they're all interconnected via the CAN bus, so when one fails the whole car electrical system falls apart. Oh and it's not like they're protecting all of these electrical computer boards from corrosion and such. Nah, why do that? They'd prefer you to buy another car in 10 years or 150k miles. So figure on $350/mo to keep a damn car + insurance + repairs and maintenance on top of that. And ofc, that 350 is if you save for a 40k car yourself.
+
+https://www.thegeneral.com/going-places/blog/car-and-driving-basics/most-fuel-efficient-vehicles-introduced-each-year-1975/ - did you know that there were many vehicles built in the 70s and 80s with 30+ mpg?
+
+Simple is better.
+"
+
 https://www.youtube.com/shorts/dHizPgoGD5Y - "This guy makes a living helping others. From what I gather, he used to be struggling in the dumps. He worked at oreilly auto parts just 3-4 years ago? Min wage job. I don't know whether he came into some money to help him get started or if he did it all on his own but apparently by way of his acts of kindness, he's actually doing quite well for himself too. Actually, they do it as a couple."
 
 ---
