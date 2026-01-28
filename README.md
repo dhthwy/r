@@ -1,16 +1,13 @@
 # r
 
-"Most women don't have dicks, so they use any dick they can grab ahold of to fuck the whole world. Afterall, dicks will be dicks. At least that's what you people do. But you didn't stop to think 'hmm, what would the world be like if I was just a kind, healer type of person by default?'"
+"I think I'm basically already fucked, where before '20 I used to actually have hope.
 
-"A cpl years back I recall an asian woman and her preteen child at a grocery store. They were both begging for help. Everyone walked by them as if they were ghosts. Now I think before I met you, I would've slipped the mother 200, wished them well, and hoped someone with the means would offer better assistance. But after meeting you, it's been 'fuck everybody.' You basically taught me the opposite of kindness, and you've been surgical about it."
+So I'm not really nice.
 
-https://www.youtube.com/watch?v=3Bz7VLisUMg&t=338s
+No. You don't know how it feels. Or you wouldn't do it. And if you did and you did it anyway, then you deserve this https://www.youtube.com/watch?v=7vzlzl-19Gc
+"
 
-https://www.youtube.com/watch?v=X8DU7_T0ox8
-
-https://www.youtube.com/shorts/yyh6y8OXnTc - "Makes my point. That board isn't properly protected. Made in USA."
-
-https://www.youtube.com/watch?v=lj5GXZaE7qs
+---
 
 "I won't be buying any new cars any time soon. Fuck that. Just like everything else, they're degrading survivability for fancy features and fuel effeciency. People don't even know how to use mirrors anymore.
 
