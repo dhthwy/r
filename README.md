@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/shorts/IbcYw1U7Ovk
+
+---
+
 "Same ol' repeat of the same.
 
 Can't expect a spoiled brat to not be fugazi.
