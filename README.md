@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/ywRwl6_I13Y
+
 https://www.youtube.com/watch?v=FdFmLhew3vk&t=158s - "nerdy but true"
 
 https://www.youtube.com/shorts/IbcYw1U7Ovk
