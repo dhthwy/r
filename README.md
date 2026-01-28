@@ -1,5 +1,7 @@
 # r
 
+"Most women don't have dicks, so they use any dick they can grab ahold of to fuck the whole world. Afterall, dicks will be dicks. At least that's what you people do. But you didn't stop to think 'hmm, what would the world be like if I was just a kind, healer type of person by default?'"
+
 "A cpl years back I recall a woman and her preteen child at a grocery store. They were both begging for help. Everyone walked by them as if they were ghosts. Now I think before I met you, I would've slipped the mother 200, wished them well, and hoped someone with the means would offer better assistance. But after meeting you, it's been 'fuck everybody.' You basically taught me the opposite of kindness, and you've been surgical about it."
 
 https://www.youtube.com/watch?v=3Bz7VLisUMg&t=338s
