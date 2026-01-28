@@ -1,5 +1,14 @@
 # r
 
+"Same ol' repeat of the same.
+
+Can't expect a spoiled brat to not be fugazi.
+
+https://www.youtube.com/watch?v=6afleshY1bA&t=140s
+"
+
+---
+
 "I think I'm basically already fucked, where before '20 I used to actually have hope.
 
 So I'm not really nice.
