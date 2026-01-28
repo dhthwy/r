@@ -1,5 +1,7 @@
 # r
 
+"A cpl years back I recall a woman and her preteen child at a grocery store. They were both begging for help. Everyone walked by them as if they were ghosts. Now I think before I met you, I would've slipped the mother 200, wished them well, and hoped someone with the means would offer better assistance. But after meeting you, it's been 'fuck everybody.' You basically taught me the opposite of kindness, and you've been surgical about it."
+
 https://www.youtube.com/watch?v=3Bz7VLisUMg&t=338s
 
 https://www.youtube.com/watch?v=X8DU7_T0ox8
