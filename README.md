@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=3Bz7VLisUMg&t=338s
+
 https://www.youtube.com/watch?v=X8DU7_T0ox8
 
 https://www.youtube.com/shorts/yyh6y8OXnTc - "Makes my point. That board isn't properly protected. Made in USA."
