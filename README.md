@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/yyh6y8OXnTc - "Makes my point. That board isn't properly protected. Made in USA."
+
 https://www.youtube.com/watch?v=lj5GXZaE7qs
 
 "I won't be buying any new cars any time soon. Fuck that. Just like everything else, they're degrading survivability for fancy features and fuel effeciency. People don't even know how to use mirrors anymore.
