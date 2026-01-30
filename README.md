@@ -1,5 +1,13 @@
 # r
 
+"So very interesting that many moons ago they wrote in plural but they actually operate as a singularity.
+
+https://proofed.com/writing-tips/are-organizations-singular-or-plural-nouns/
+
+Can't trust them companies."
+
+---
+
 https://www.youtube.com/watch?v=yuJqIjZwDf8&t=155s
 
 https://www.youtube.com/shorts/ywRwl6_I13Y
