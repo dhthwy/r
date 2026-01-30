@@ -4,7 +4,9 @@
 
 https://proofed.com/writing-tips/are-organizations-singular-or-plural-nouns/
 
-Can't trust them companies."
+Can't trust them companies.
+
+Effectively extremely narrow minded rather than sweeping and broad, no matter what poopy covfefe shit comes out of their lips."
 
 ---
 
