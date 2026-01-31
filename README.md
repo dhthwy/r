@@ -5,6 +5,8 @@
 Sure there was eventual convergence alright. Converged into assholes, for real real.
 
 You will love this. You most def a horse. https://bestgore.fun/w/4aed513f-4775-4912-b003-250f5d30332d
+
+Just like that guy, I got dead by being fucked big up the ass.
 "
 
 "So very interesting that many moons ago they wrote in plural but they actually operate as a singularity.
