@@ -1,5 +1,12 @@
 # r
 
+"There isn't 6 more years. Maybe 2 if lucky. Can't be wasting on people who live to waste.
+
+Sure there was eventual convergence alright. Converged into assholes, for real real.
+
+You will love this. You most def a horse. https://bestgore.fun/w/4aed513f-4775-4912-b003-250f5d30332d
+"
+
 "So very interesting that many moons ago they wrote in plural but they actually operate as a singularity.
 
 https://proofed.com/writing-tips/are-organizations-singular-or-plural-nouns/
