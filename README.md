@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=yvwlEPyi6Y4&t=126s
+
 https://www.psychologytoday.com/us/blog/hope-relationships/201308/the-empty-promiser "You have earned the title."
 
 "And yes I understand it was I who allowed my own self to get fucked dead.
