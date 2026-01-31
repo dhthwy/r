@@ -1,29 +1,21 @@
 # r
 
-"You never gave a fuck about freedom. Not for me. You proved it fantastically."
+"And yes I understand it was I who allowed my own self to get fucked dead.
 
-https://www.youtube.com/watch?v=3PtezkzzMfE
+I set boundaries to avoid it, and it was easy to tell they were being ignored.
 
-https://www.youtube.com/watch?v=I0ERFlavfkc
+And I had a bad feeling telling me 'yep, you're getting fucked dead again.'
 
-"There isn't 6 more years. Maybe 2 if lucky. Can't be wasting on people who live to waste.
+But I ignored my gut. Took that leap of faith anyway, and got fucked dead.
 
-Last year was absolute border line. But you didn't give a fuck even as I was shouting and screaming to stop fucking me up.
+Now I don't even think I have the time to get on my own feet.
 
-Sure there was eventual convergence alright. Converged into assholes, for real real.
+And sicker than ever.
 
-You will love this. You most def a horse. https://bestgore.fun/w/4aed513f-4775-4912-b003-250f5d30332d
+Such lovely kind people in the world.
 
-Just like that guy, I got dead by being fucked big up the ass.
+Everyone always out to waste other people. It's marvelous. Absolutely.
 "
-
-"So very interesting that many moons ago they wrote in plural but they actually operate as a singularity.
-
-https://proofed.com/writing-tips/are-organizations-singular-or-plural-nouns/
-
-Can't trust them companies.
-
-Effectively extremely narrow minded rather than sweeping and broad, no matter what poopy covfefe shit comes out of their lips."
 
 ---
 
