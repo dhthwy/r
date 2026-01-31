@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/watch?v=3PtezkzzMfE
+
+https://www.youtube.com/watch?v=I0ERFlavfkc
+
 "There isn't 6 more years. Maybe 2 if lucky. Can't be wasting on people who live to waste.
 
 Last year was absolute border line. But you didn't give a fuck even as I was shouting and screaming to stop fucking me up.
