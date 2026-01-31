@@ -1,5 +1,7 @@
 # r
 
+"You never gave a fuck about freedom. Not for me. You proved it fantastically."
+
 https://www.youtube.com/watch?v=3PtezkzzMfE
 
 https://www.youtube.com/watch?v=I0ERFlavfkc
