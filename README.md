@@ -1,6 +1,8 @@
 # r
 
-"Yeah. Go fuck yourself and your dick. Fucking wasteful bitch."
+"Yeah. Go fuck yourself and your dick. Fucking wasteful bitch.
+
+Fake ass lyin crack whore."
 
 ---
 
