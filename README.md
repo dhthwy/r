@@ -1,5 +1,14 @@
 # r
 
+https://youtu.be/c3we2Gg0wt8?t=41
+
+https://www.youtube.com/watch?v=ShrM1spqsk4
+
+<img width="604" height="603" alt="Screenshot_20260131_234227" src="https://github.com/user-attachments/assets/990a54e4-3669-453d-b703-1dc5ea7a79b6" />
+
+"Well, you can't."
+
+
 "I'll be moving this month so no matter what everything is up in the air anyway.
 
 Had things gone differently I'd be in a far better position to deal with all of this.
