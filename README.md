@@ -4,7 +4,7 @@
 
 https://www.youtube.com/watch?v=yvwlEPyi6Y4&t=126s
 
-And they dirty pimps should be gettin HORSE DICKED up the ass too.
+And they dirty pimps should be gettin HORSE DICKED up the ass by the gandchaud too.
 
 Go for that balance benchaud.
 "
