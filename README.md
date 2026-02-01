@@ -1,5 +1,13 @@
 # r
 
+"I'll be moving this month so no matter what everything is up in the air anyway.
+
+Had things gone differently I'd be in a far better position to deal with all of this.
+
+Make people better than when you left them. Not worse. But I'm in the minority, and actually, I don't really subscribe to that anymore. No one else does. Nice people just get fucked."
+
+---
+
 https://www.youtube.com/watch?v=yvwlEPyi6Y4&t=126s
 
 https://www.psychologytoday.com/us/blog/hope-relationships/201308/the-empty-promiser "You have earned the title."
