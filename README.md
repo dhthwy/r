@@ -1,5 +1,14 @@
 # r
 
+"For all the crack whores out there
+
+https://www.youtube.com/watch?v=yvwlEPyi6Y4&t=126s
+
+And they dirty pimps should be gettin HORSE DICKED up the ass too.
+
+Go for that balance benchaud.
+"
+
 "Yeah. Go fuck yourself and your dick. Fucking wasteful bitch.
 
 Fake ass lyin crack whore."
