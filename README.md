@@ -1,5 +1,7 @@
 # r
 
+"Fuck them up the ass with your horse cock like they're mr hands, just like you did me. Motherfucker."
+
 "For all the crack whores out there
 
 https://www.youtube.com/watch?v=yvwlEPyi6Y4&t=126s
