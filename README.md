@@ -1,5 +1,7 @@
 # r
 
+"Sure would be nice to get clean. But damn did I try. And damn was I fucked for tryin."
+
 "
 This actually happened to a lady who is a close family friend. At one point, she worked at a convalescent home—not just for old people, but for folks who were a little nuts and couldn't take care of themselves.
 
