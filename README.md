@@ -1,5 +1,7 @@
 # r
 
+https://longevity.stanford.edu/lifestyle-medicine-2-relationships/ - "Yep, you sure cared about that over the years. lol."
+
 "
 Told ya.
 
