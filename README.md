@@ -1,5 +1,17 @@
 # r
 
+"
+This actually happened to a lady who is a close family friend. At one point, she worked at a convalescent home—not just for old people, but for folks who were a little nuts and couldn't take care of themselves.
+
+One lady there had a specific disorder where she thought everything was food. She would eat her dinner and then immediately start trying to eat the napkins. As you can guess, she ended up morbidly obese. She was eventually too large for the showers, so they had to take her out back and hose her down like an elephant. Because of her size, she had many skin rolls that were nearly impossible to keep clean.
+
+One day, the family friend was making her rounds of the complex when she was stopped by a man in a wheelchair. He mumbled something at her: "Bitch stole my Doritos..." When she asked him to repeat himself, he got agitated. "That fat lady stole my Doritos and she won't give 'em back!" Trying to keep the peace, the friend replied, "Okay, okay, calm down. I'll get your chips back for you."
+
+She went into the lady's room and found her alone with the chips—and nothing else. She was buck naked, and due to a severe infection, there was a thick, almost gelatinous discharge. The lady was dipping the chips into herself and eating them, with the discharge stretching like melted cheese on a pizza. She apparently had a big smile on her face as it dripped down her chin.
+
+I haven’t had a Dorito since.
+"
+
 "Like I said. You're the horse, and I am mr hands whose bowels were perforated by your huge member.
 
 I think of all the times you perforated me. It's so numerous I had to write it down to remember them all.
