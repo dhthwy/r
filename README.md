@@ -1,45 +1,17 @@
 # r
 
-https://www.youtube.com/watch?v=sKp70tBqUXc
-
-https://www.youtube.com/watch?v=kloPtDkkcBk&t=75s  "Lyin pigs really piss me off."
-
-"Fuck them up the ass with your horse cock like they're mr hands, just like you did me. Motherfucker."
-
-"For all the crack whores out there
-
-https://www.youtube.com/watch?v=yvwlEPyi6Y4&t=126s
-
-And they dirty pimps should be gettin HORSE DICKED up the ass by the gandchaud too.
-
-Go for that balance benchaud.
 "
+Told ya.
 
-"Yeah. Go fuck yourself and your dick. Fucking wasteful bitch.
+I'm not nice.
 
-Fake ass lyin crack whore."
+I don't see anything nice.
 
----
+The world isn't nice.
 
-https://www.youtube.com/watch?v=yvwlEPyi6Y4&t=126s
+Not for a very long time.
 
-https://www.psychologytoday.com/us/blog/hope-relationships/201308/the-empty-promiser "You have earned the title."
-
-"And yes I understand it was I who allowed my own self to get fucked dead.
-
-I set boundaries to avoid it, and it was easy to tell they were being ignored.
-
-And I had a bad feeling telling me 'yep, you're getting fucked dead again.'
-
-But I ignored my gut. Took that leap of faith anyway, and got fucked dead.
-
-Now I don't even think I have the time to get on my own feet.
-
-And sicker than ever.
-
-Such lovely kind people in the world.
-
-Everyone always out to waste other people. It's marvelous. Absolutely.
+No one is nice.
 "
 
 ---
