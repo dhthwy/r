@@ -1,5 +1,11 @@
 # r
 
+"Like I said. You're the horse, and I am mr hands whose bowels were perforated by your huge member.
+
+I think of all the times you perforated me. It's so numerous I had to write it down to remember them all.
+
+Fucked. Perforated. No kiss tho."
+
 https://longevity.stanford.edu/lifestyle-medicine-2-relationships/ - "Yep, you sure cared about that over the years. lol. Oh, for yourself, sure. Your exclusion tactics were well played.
 
 In essense, as you are already well familar with the topic, that article suggests you tried to murder me intentionally. Fuck my life to death eh? Such wonderful, kind person you are."
