@@ -1,6 +1,8 @@
 # r
 
-https://longevity.stanford.edu/lifestyle-medicine-2-relationships/ - "Yep, you sure cared about that over the years. lol. Oh, for yourself, sure. Your exclusion tactics were well played."
+https://longevity.stanford.edu/lifestyle-medicine-2-relationships/ - "Yep, you sure cared about that over the years. lol. Oh, for yourself, sure. Your exclusion tactics were well played.
+
+In essense, as you are already well familar with the topic, that article suggests you tried to murder me intentionally. Fuck my life to death eh? Such wonderful, kind person you are."
 
 "
 Told ya.
