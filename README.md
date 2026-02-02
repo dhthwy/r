@@ -1,6 +1,6 @@
 # r
 
-https://longevity.stanford.edu/lifestyle-medicine-2-relationships/ - "Yep, you sure cared about that over the years. lol."
+https://longevity.stanford.edu/lifestyle-medicine-2-relationships/ - "Yep, you sure cared about that over the years. lol. Oh, for yourself, sure. Your exclusion tactics were well played."
 
 "
 Told ya.
