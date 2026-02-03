@@ -1,5 +1,8 @@
 # r
 
+<img width="647" height="243" alt="Screenshot_20260202_230146" src="https://github.com/user-attachments/assets/042c6501-a761-464c-9fee-15038711d009" />
+
+
 "Sure would be nice to get clean. But damn did I try. And damn was I fucked for tryin."
 
 "
