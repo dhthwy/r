@@ -1,5 +1,9 @@
 # r
 
+<img width="476" height="600" alt="Screenshot_20260203_171154" src="https://github.com/user-attachments/assets/a7428539-6422-491e-84f2-4ec7ec64bbf7" />
+
+"lol I remember that. Can't be making it easy. Make it as hard and difficult as possible, right? And that applies to everyone. Equity is a bitch, isn't it?"
+
 https://www.youtube.com/shorts/8nQKu0YHm-U
 
 "For breakfast. Ouchie.
