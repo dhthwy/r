@@ -1,5 +1,20 @@
 # r
 
+https://www.youtube.com/shorts/8nQKu0YHm-U
+
+"For breakfast. Ouchie.
+
+For lunch. Ouchie.
+
+For dinner. Ouchie.
+
+Inbetween. Ouchie.
+
+What did you expect with such food?
+"
+
+---
+
 <img width="647" height="243" alt="Screenshot_20260202_230146" src="https://github.com/user-attachments/assets/042c6501-a761-464c-9fee-15038711d009" />
 
 
