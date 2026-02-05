@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/@ProjectFarm - "This guy does a great service. Really helps separate the good shit from the bad shit."
+
+---
+
 "Guess I vomited inside myself so much for so long you can just call me puke."
 
 ---
