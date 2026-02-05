@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/watch?v=MugQpObB6hY
+
+---
+
 https://www.youtube.com/@ProjectFarm - "This guy does a great service. Really helps separate the good shit from the bad shit."
 
 ---
