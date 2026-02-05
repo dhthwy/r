@@ -1,5 +1,7 @@
 # r
 
+https://www.amazon.com/gp/product/B07VL52X2S?ref=ppx_pt2_dt_b_prod_image - "this thing is gorgeous. amzn sold that to me for $120 new. I've even been stroking it."
+
 https://www.youtube.com/watch?v=MugQpObB6hY
 
 ---
