@@ -6,7 +6,11 @@ https://www.youtube.com/shorts/ueGtwI6bcuM - "yep me. My sugar intake has actual
 
 I haven't yet lowered myself to felatio for low wage brainless work. If someone needed me then I'd do it in a heart beat. But sucking D and being treated like the reject I am is akin I feel only makes things worse for me. I'm dumb and weak. Pretty much completely worthless in this world.
 
-Getting this old crusty engine started is the hardest. Can't get any help with that tho."
+Getting this old crusty engine started is the hardest. Can't get any help with that tho. Every time I've tried I just get treated like shit.
+
+Can't do mechanic work professionaly - I am too weak. You can kinda get by if you're dumb. And that work sucks anyway unless you run your own shop.
+
+You can be strong and dumb. You can be smart and weak. But you can't be weak and dumb. Weak and dumb = death sentence."
 
 ---
 
