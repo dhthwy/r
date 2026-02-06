@@ -1,5 +1,15 @@
 # r
 
+https://www.youtube.com/shorts/ueGtwI6bcuM - "yep me"
+
+"Equity doesn't exist. But that's alright. There comes a point when you know. 
+
+I haven't yet lowered myself to felatio for low wage brainless work. If someone needed me then I'd do it in a heart beat. But sucking D and being treated like the reject I am is akin I feel only makes things worse for me. I'm dumb and weak. Pretty much completely worthless in this world.
+
+Getting this old crusty engine started is the hardest. Can't get any help with that tho."
+
+---
+
 https://www.amazon.com/gp/product/B07VL52X2S?ref=ppx_pt2_dt_b_prod_image - "this thing is gorgeous. amzn sold that to me for $120 new. I've even been stroking it."
 
 https://www.youtube.com/watch?v=MugQpObB6hY
