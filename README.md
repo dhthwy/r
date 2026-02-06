@@ -10,7 +10,9 @@ Getting this old crusty engine started is the hardest. Can't get any help with t
 
 Can't do mechanic work professionaly - I am too weak. You can kinda get by if you're dumb. And that work sucks anyway unless you run your own shop.
 
-You can be strong and dumb. You can be smart and weak. But you can't be weak and dumb. Weak and dumb = death sentence."
+You can be strong and dumb. You can be smart and weak. But you can't be weak and dumb. Weak and dumb = death sentence. And that's why so many women have it hard. The only thing they have is their brains. So 100% of women have to rely on their brains, where many men can get by with their balls.
+
+I don't think I've seen any women UPS delivery drivers. My floor jack weighs 100lbs. I went and got it from the truck to give the driver a break. A big guy, and hes like yeah, this thing is heavy. Thanks!"
 
 ---
 
