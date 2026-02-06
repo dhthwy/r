@@ -1,6 +1,6 @@
 # r
 
-https://www.youtube.com/shorts/ueGtwI6bcuM - "yep me"
+https://www.youtube.com/shorts/ueGtwI6bcuM - "yep me. My sugar intake has actually skyrocketed. Soda used to be a rare treat. Gotta have somethin to do with being dumb."
 
 "Equity doesn't exist. But that's alright. There comes a point when you know. 
 
