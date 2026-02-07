@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/Y32mSV9Nam4
+
 "Be kind. Get kind.
 
 Be a jerk. Get jerk.
