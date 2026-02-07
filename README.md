@@ -18,7 +18,7 @@ I'm gonna fuck up their money in various ways.
 
 I'm not gonna actually give any moment of my time to them.
 
-I'm gonna violate their privacy to the fullest extent.
+I'm gonna violate their trust and privacy to the fullest extent.
 
 I don't actually fulfill any promises.
 
