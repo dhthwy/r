@@ -1,5 +1,16 @@
 # r
 
+"Be kind. Get kind.
+
+Be a jerk. Get jerk.
+
+You chose the #2 option. Claimed all these excuses. Turned out - all lies.
+
+Not the same anymore.. Riiiiight. That doesn't fly when you do the same ol shit.
+"
+
+---
+
 "Fuck people up as you did, expect to get some in return. It's no different than hitting someone, especially after warnings to stop."
 
 https://www.youtube.com/shorts/Y32mSV9Nam4
