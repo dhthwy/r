@@ -1,5 +1,20 @@
 # r
 
+"This is why I like project farm for testing stuff.
+
+https://www.amazon.com/Flashlights-Rechargeable-Flashlight-Waterproof-Emergencies/dp/B0CXXYKMVM/ref=sr_1_4?dib=eyJ2IjoiMSJ9.1lpACa-AVGut4YuY4kIU4O57ObqqYcsUi0T5qdzOPuj9TsrcfDZC54qNMeFMlJY3gokBMvM23S7f9LnMM9GVkj-z4_YlSClweMySWNu0DGFHjnM3UFCXBle_PL2FL8Kjdx36ehbJf_z1ugveh6nXMrmYtvd6StyLl_-nOo_906iS85gjLvi6NXwoLkwUTGsSHcFEi9sj8mb3OROb55K8-mN73w_OhX8gtX-BlySDB1qj0y5fn-oLBBxyNpkuX2GgEgtIYjkMuDuDrEvjRoMIFNMFU9GICwCtLALKGgkPbes.jKGOoVPOwJnyixBDzq6ULgZ-JUn3njEHWZE3vFa7UtM&dib_tag=se&keywords=windfire%2Bflashlight&qid=1770438320&s=hardware&sr=1-4&th=1
+
+There's a $30 super high luman flashlight.
+
+If you ever find yourself stranded. Break that out.
+
+Shine it onto oncoming traffic (it's like 20x that of highbeams).
+
+They're guaranteed to stop!
+
+Or lost in the wilderness? SOS the sky.
+"
+
 https://www.youtube.com/shorts/ueGtwI6bcuM - "yep me. My sugar intake has actually skyrocketed. Soda used to be a rare treat. Gotta have somethin to do with being dumb."
 
 "Equity doesn't exist. But that's alright. There comes a point when you know. 
