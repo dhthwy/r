@@ -1,5 +1,7 @@
 # r
 
+"Fuck people up as you did, expect to get some in return. It's no different than hitting someone, especially after warnings to stop."
+
 https://www.youtube.com/shorts/Y32mSV9Nam4
 
 "You're there for those you DO care about. You were always a liar. That's a fact.
