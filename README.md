@@ -1,5 +1,17 @@
 # r
 
+https://www.youtube.com/shorts/Y32mSV9Nam4
+
+"You're there for those you DO care about. You were always a liar. That's a fact.
+
+No one likes a liar. Especially one who wastes so much. Know what I mean? No. You don't.
+
+Toxic? Who was? You were nothin but an asshole liar to me the.whole.time.
+
+Sadly I guess no one taught you that lyin and wastin isn't very nice. Poor upbringing. No excuse tho, you should've learned this in school.
+"
+"
+
 "No worries. There's nothing for me to do.
 
 However, I reserve the right to fuck you up. Just like you fucked me up you perfidicous cunt.
