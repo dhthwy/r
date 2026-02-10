@@ -2,7 +2,7 @@
 
 All was forgiven. BUT a big but, when forgiveness was based on a lie, it gets recanted.
 
-You simply proved you don't care at all for me, which means you never did, because no one does that shit to anyone they've ever cared for.
+You simply proved you don't care at all for me -in recent history, which means you never did, because no one does that shit to anyone they've ever cared for.
 
 Doesn't matter now. It's been all for them.
 
