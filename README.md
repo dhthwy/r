@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=3ZumtJNEni0 - 'But you showed relatively recently that this is exactly what you intended. Real nice of you."
+
 https://www.youtube.com/watch?v=eUGoq0ERgYc
 
 "
