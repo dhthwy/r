@@ -1,5 +1,19 @@
 # r
 
+All was forgiven. BUT a big but, when forgiveness was based on a lie, it gets recanted.
+
+You simply proved you don't care at all for me, which means you never did, because no one does that shit to anyone they've ever cared for.
+
+Doesn't matter now. It's been all for them.
+
+Your actions have spoken, and the resulting damage was done. Forever.
+
+One of these days I'll upload a vid of a milf on my knob. Ok?
+
+https://www.youtube.com/watch?v=V-dx5pk08J4&t=179s
+
+---
+
 https://www.youtube.com/watch?v=3ZumtJNEni0 - 'But you showed relatively recently that this is exactly what you intended. Real nice of you.
 
 Tricking me into losing that much resources, which could've went toward things that I need or actually helped, is an act of enemy. I reserve rights to be ruthless."
