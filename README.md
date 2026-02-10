@@ -1,6 +1,8 @@
 # r
 
-https://www.youtube.com/watch?v=3ZumtJNEni0 - 'But you showed relatively recently that this is exactly what you intended. Real nice of you."
+https://www.youtube.com/watch?v=3ZumtJNEni0 - 'But you showed relatively recently that this is exactly what you intended. Real nice of you.
+
+Tricking me into losing that much resources, which could've went toward things that I need or actually helped, is an act of enemy. I reserve rights to be ruthless."
 
 https://www.youtube.com/watch?v=eUGoq0ERgYc
 
