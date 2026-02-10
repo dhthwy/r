@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=eUGoq0ERgYc
+
 "
 Yes, there are far worse things than being alone. Let’s take a look:
 >> Being with someone who makes you feel more alone than actually being alone.
