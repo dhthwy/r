@@ -1,5 +1,19 @@
 # r
 
+"I have no desire to be given more nightmares.
+
+No desire to watch how other people are given 100% preferrential treatment, while I receive 0%.
+
+No desire to be subjected to cocks who steal what little there was.
+
+All for them.
+
+You lied and said there would be something for me. Gave it all away anyway. No more letting people fuck me up.
+"
+
+---
+
+"
 All was forgiven. BUT a big but, when forgiveness was based on a lie, it gets recanted.
 
 You simply proved you don't care at all for me -in recent history, which means you never did, because no one does that shit to anyone they've ever cared for.
@@ -8,7 +22,7 @@ Doesn't matter now. It's been all for them.
 
 Your actions have spoken, and the resulting damage was done. Forever.
 
-One of these days I'll upload a vid of a milf on my knob. Ok?
+One of these days I'll upload a vid of a milf on my knob. Ok?"
 
 https://www.youtube.com/watch?v=V-dx5pk08J4&t=179s
 
