@@ -1,5 +1,12 @@
 # r
 
+"Interesting how I abundantly made this clear before, specifically said no more 'fuck me up. Last time.'
+
+Interesting how you completely disregarded it in the most disrespectful of ways.
+
+What a fuckin jerk.
+"
+
 "I have no desire to be given more nightmares.
 
 No desire to watch how other people are given 100% preferrential treatment, while I receive 0%.
