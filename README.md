@@ -8,7 +8,13 @@ No desire to be subjected to cocks who steal what little there was.
 
 All for them.
 
-You lied and said there would be something for me. Gave it all away anyway. No more letting people fuck me up.
+You lied when you said there would be something for me. 
+
+You lied when you said I wouldn't be stranded, yet soon as their feet touch ground you're there for them. No wait for them.
+
+You said lots of things. You gave it all away anyway without respect for me in any form.
+
+No more letting people fuck me up.
 "
 
 ---
