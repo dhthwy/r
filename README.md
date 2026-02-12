@@ -1,6 +1,8 @@
 # r
 
 "
+It's dumb as hell to mess with people who don't value you. It just brings you down and wastes pretty much everything. Worse than being alone. :)
+
 It's like less than 1% at best lol.
 
 Basically pointless.
