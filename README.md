@@ -1,51 +1,18 @@
 # r
 
-"Interesting how I abundantly made this clear before, specifically said no more 'fuck me up. Last time.'
-
-Interesting how you completely disregarded it in the most disrespectful of ways.
-
-What a fuckin jerk.
 "
+I don't know.
 
-"I have no desire to be given more nightmares.
+Far as I'm concerned nothing actually real was for me.
 
-No desire to watch how other people are given 100% preferrential treatment, while I receive 0%.
+Can't continue to repetively be messed up.
 
-No desire to be subjected to cocks who steal what little there was.
+I complained about time back then. Instead of listening, You just gave me 0 of it as you had something better to do.
 
-All for them.
+Why bother when you gave away 100s of hours of time, and still haven't given me shit, and even if i got any, it wouldn't be nothing in comparison.
 
-You lied when you said there would be something for me. 
-
-You lied when you said I wouldn't be stranded, yet soon as their feet touch ground you're there for them. No wait for them.
-
-You said lots of things. You gave it all away anyway without respect for me in any form.
-
-No more letting people fuck me up.
+Bad road. Dead end.
 "
-
----
-
-"
-All was forgiven. BUT a big but, when forgiveness was based on a lie, it gets recanted.
-
-You simply proved you don't care at all for me -in recent history, which means you never did, because no one does that shit to anyone they've ever cared for.
-
-Doesn't matter now. It's been all for them.
-
-Your actions have spoken, and the resulting damage was done. Forever.
-
-One of these days I'll upload a vid of a milf on my knob. Ok?"
-
-https://www.youtube.com/watch?v=V-dx5pk08J4&t=179s
-
----
-
-https://www.youtube.com/watch?v=3ZumtJNEni0 - 'But you showed relatively recently that this is exactly what you intended. Real nice of you.
-
-Tricking me into losing that much resources, which could've went toward things that I need or actually helped, is an act of enemy. I reserve rights to be ruthless."
-
-https://www.youtube.com/watch?v=eUGoq0ERgYc
 
 "
 Yes, there are far worse things than being alone. Let’s take a look:
