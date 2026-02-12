@@ -5,6 +5,8 @@ It's dumb as hell to mess with people who don't value you. It just brings you do
 
 It's like less than 1% at best lol.
 
+1/1000.
+
 Basically pointless.
 
 ---
