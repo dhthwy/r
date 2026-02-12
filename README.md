@@ -1,6 +1,13 @@
 # r
 
 "
+It could've been different, but you had no problems at all throwing years away with zero while you rack it up on the other hand. That's just messed up.
+
+Actually, as a pragmatist (you have to be to write decent code), I think I would've done well if I had just kept doing what I Was doing 5 years ago rather than getting caught up in a spider web, and subsquently murdered. Only stretch in my life where I've been completely incapacitated, which will very likely lead to early death. Super nice people.
+"
+
+---
+
 It's dumb as hell to mess with people who don't value you. It just brings you down and wastes pretty much everything. Worse than being alone. :)
 
 It's like less than 1% at best lol.
