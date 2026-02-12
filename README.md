@@ -1,6 +1,12 @@
 # r
 
 "
+It's like less than 1% at best lol.
+
+Basically pointless.
+
+---
+
 I don't know.
 
 Far as I'm concerned nothing actually real was for me.
