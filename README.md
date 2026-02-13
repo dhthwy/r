@@ -9,8 +9,6 @@ The rules are:
 You get to spend lots for a 1 in 100 chance for a super tiny slice.
 
 Everyone else gets 100% chance all-you-can shots.
-
-Done. Fuckin jerk.
 "
 
 
