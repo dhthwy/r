@@ -1,5 +1,19 @@
 # r
 
+"Well as I said:
+
+A pie has been split into 10000 little slices.
+
+The rules are:
+
+You get to spend lots for a 1 in 100 chance for a super tiny slice.
+
+Everyone else gets 100% chance all-you-can shots.
+
+Done. Fuckin jerk.
+"
+
+
 "
 It could've been different, but you had no problems at all throwing years away with zero while you rack it up on the other hand. That's just messed up.
 
