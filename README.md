@@ -1,5 +1,20 @@
 # r
 
+"Part of the price increase was Obama's cash of clunker's program. Car prices skyrocketed after that.
+
+I am sure Obama knew that most of the USA doesn't have decent public transportation. And without that, like here, you absolutely need a car to even have a job - they will NOT hire you if you don't have one.
+
+Obama and democrats turned $500-$1k good enough to get to work in a pinch car into a $5k - maybe it runs - car.
+
+There's an older woman who is raising her son alone. Drives a beat up car. I know when that car dies, she won't be able to afford a used one. And her son will require it to even work. Nearest bus stop is like 10 miles away.
+
+Like that for a lot of people.
+
+Covid further made things worse.
+
+It doesn't matter the party. They each serve the ultra wealthy. No one cares about the poor mom trying to raise a kid on her own.
+"
+
 "So I should have lots of money saved then since I chose to keep an old reliable car running than spend it on something that looks nice but is internally inferior. If only I was healthy. :)"
 
 "I guess you can spend $25k on something basic that holds its value like a Toyota, keep it for 5 years, and then sell it for $10k to some poor shmuck before you get hit with $10k in repairs inevitably around the corner. The second buyer gets screwed in this case and then it winds up in the junk yard.
