@@ -1,5 +1,7 @@
 # r
 
+"So I should have lots of money saved then since I chose to keep an old reliable car running than spend it on something that looks nice but is internally inferior. If only I was healthy. :)"
+
 "I guess you can spend $25k on something basic that holds its value like a Toyota, keep it for 5 years, and then sell it for $10k to some poor shmuck before you get hit with $10k in repairs inevitably around the corner. The second buyer gets screwed in this case and then it winds up in the junk yard.
 
 Which comes out to roughly $250/mo to keep a car if you buy new and sell it before it turns junk. You can break everything you want to keep down into monthly costs."
