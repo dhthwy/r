@@ -1,5 +1,11 @@
 # r
 
+https://youtu.be/KKEkUs8MTnQ?t=253
+
+"This guy is genius. And he's absolutely right. Life is hard enough as it is. We don't know need to fuck people into the ground. Everyone else is already doing it!"
+
+---
+
 "Well as I said:
 
 A pie has been split into 10000 little slices.
