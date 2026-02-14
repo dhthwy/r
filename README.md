@@ -6,7 +6,7 @@ Mechanic work has always sucked, but it's a lot worse now.
 
 The USA Isn't europe. It's built for the road. Regulations are actually a major factor in some of these changes. That and no 'right to repair' laws - they recently made an exception only for farm equipment.
 
-Make money on Uber? Forget about it. New cars still only made to go 150k more or less before major repairs (1000s of dollars dealer only can fix) are needed. And new cars are what? $25k In 2-3 years you'll be buying a new car as a driver. I always give big tips to Uber drivers. They're all fucked - they just don't realize it yet."
+Make money on Uber? Forget about it. New cars still only made to go 150k more or less before major repairs (1000s of dollars dealer only can fix) are needed. And new cars are what? $25k In 2-3 years you'll be buying a new (basic at that price) car as a driver. I always give big tips to Uber drivers. They're all fucked - they just don't realize it yet."
 
 https://youtu.be/KKEkUs8MTnQ?t=253
 
