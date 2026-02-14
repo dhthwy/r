@@ -1,5 +1,13 @@
 # r
 
+"New cars have gone the way of the vacuum cleaner. It's affecting independent shops too.
+
+Mechanic work has always sucked, but it's a lot worse now.
+
+The USA Isn't europe. It's built for the road. Regulations are actually a major factor in some of these changes. That and no 'right to repair' laws - they recently made an exception only for farm equipment.
+
+Make money on Uber? Forget about it. New cars still only made to go 150k more or less before major repairs are needed. And new cars are what? $25k In 2-3 years you'll be buying a new car as a driver. I always give big tips to Uber drivers. They're all fucked - they just don't realize it yet."
+
 https://youtu.be/KKEkUs8MTnQ?t=253
 
 "This guy is genius. And he's absolutely right. Life is hard enough as it is. We don't know need to fuck people into the ground. Everyone else is already doing it!"
