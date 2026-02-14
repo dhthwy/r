@@ -1,6 +1,6 @@
 # r
 
-"I'm sorry but your $50k - 100k vehicle is actually a piece of shit, filled with piece of shit flimsy tech."
+"I'm sorry but your $50k - 100k vehicle is actually a piece of shit, filled with piece of shit aluminum, plastic, and flimsy tech."
 
 "New cars have gone the way of the vacuum cleaner. It's affecting independent shops too.
 
