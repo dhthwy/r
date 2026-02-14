@@ -1,5 +1,11 @@
 # r
 
+"I guess you can spend $25k on something that holds its value like a Toyota, keep it for 5 years, and then sell it for $10k to some poor shmuck before you get hit with $10k in repairs inevitably around the corner. The second buyer gets screwed in this case and then it winds up in the junk yard.
+
+Which comes out to roughly $250/mo to keep a car if you buy new and sell it before it turns junk. You can break everything you want to keep down into monthly costs."
+
+---
+
 "Impacts a LOT of industries. Since all of these new cars are guaranteed trash after 100k-150k miles, there'll be far less work for painters, which is actually an ok job for the average person."
 
 "I'm sorry but your $50k - 100k vehicle is actually a piece of shit, filled with piece of shit aluminum engine, plastic, and flimsy tech. $10k repairs because some plastic piece engine component broke. Could've been metal instead of plastic, but they don't want that part hitting 300k miles."
