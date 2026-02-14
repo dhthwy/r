@@ -6,7 +6,7 @@ I am sure Obama knew that most of the USA doesn't have decent public transportat
 
 Obama and democrats turned $500-$1k good enough to get to work in a pinch car into a $5k - maybe it runs - car.
 
-There's an older woman who is raising her son alone. Drives a beat up car. I know when that car dies, she won't be able to afford a used one. And her son will require it to even work. Nearest bus stop is like 10 miles away.
+There's an older woman who is raising her son alone. Drives a beat up car. I know when that car dies, she won't be able to afford a used one. And her son will require it to even work. Nearest bus stop is like 10 miles away, and any bus transportation around here is super ghetto. All black. No whites allowed or get raped.
 
 Like that for a lot of people.
 
