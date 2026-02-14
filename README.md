@@ -1,6 +1,8 @@
 # r
 
-"I'm sorry but your $50k - 100k vehicle is actually a piece of shit, filled with piece of shit aluminum, plastic, and flimsy tech."
+"Impacts a LOT of industries. Since all of these new cars are guaranteed trash after 100k-150k miles, there'll be far less work for painters, which is actually an ok job for the average person."
+
+"I'm sorry but your $50k - 100k vehicle is actually a piece of shit, filled with piece of shit aluminum engine, plastic, and flimsy tech. $10k repairs because some plastic piece engine component broke. Could've been metal instead of plastic, but they don't want that part hitting 300k miles."
 
 "New cars have gone the way of the vacuum cleaner. It's affecting independent shops too.
 
