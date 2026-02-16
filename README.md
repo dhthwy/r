@@ -1,87 +1,11 @@
 # r
 
-"Part of the price increase was Obama's cash of clunker's program. Car prices skyrocketed after that.
-
-I am sure Obama knew that most of the USA doesn't have decent public transportation. And without that, like here, you absolutely need a car to even have a job - they will NOT hire you if you don't have one.
-
-Obama and democrats turned $500-$1k good enough to get to work in a pinch car into a $5k - maybe it runs - car.
-
-There's an older woman who is raising her son alone. Drives a beat up car. I know when that car dies, she won't be able to afford a used one. And her son will require it to even work. Nearest bus stop is like 10 miles away, and any bus transportation around here is super ghetto. All black. No whites allowed or get raped.
-
-Like that for a lot of people.
-
-Covid further made things worse.
-
-It doesn't matter the party. They each serve the ultra wealthy. No one cares about the poor mom trying to raise a kid on her own.
 "
+Anyway. Point is, life is hard enough as it is for most people.
 
-"So I should have lots of money saved then since I chose to keep an old reliable car running than spend it on something that looks nice but is internally inferior. If only I was healthy. :)"
+No good reason to make things worse.
 
-"I guess you can spend $25k on something basic that holds its value like a Toyota, keep it for 5 years, and then sell it for $10k to some poor shmuck before you get hit with $10k in repairs inevitably around the corner. The second buyer gets screwed in this case and then it winds up in the junk yard.
-
-Which comes out to roughly $250/mo to keep a car if you buy new and sell it before it turns junk. You can break everything you want to keep down into monthly costs."
-
----
-
-"Impacts a LOT of industries. Since all of these new cars are guaranteed trash after 100k-150k miles, there'll be far less work for painters, which is actually an ok job for the average person."
-
-"I'm sorry but your $50k - 100k vehicle is actually a piece of shit, filled with piece of shit aluminum engine, plastic, and flimsy tech. $10k repairs because some plastic piece engine component broke. Could've been metal instead of plastic, but they don't want that part hitting 300k miles."
-
-"New cars have gone the way of the vacuum cleaner. It's affecting independent shops too.
-
-Mechanic work has always sucked, but it's a lot worse now.
-
-The USA Isn't europe. It's built for the road. Regulations are actually a major factor in some of these changes. That and no 'right to repair' laws - they recently made an exception only for farm equipment.
-
-Make money on Uber? Forget about it. New cars still only made to go 150k more or less before major repairs (1000s of dollars dealer only can fix) are needed. And new cars are what? $25k In 2-3 years you'll be buying a new (basic at that price) car as a driver. I always give big tips to Uber drivers. They're all fucked - they just don't realize it yet."
-
-https://youtu.be/KKEkUs8MTnQ?t=253
-
-"This guy is genius. And he's absolutely right. Life is hard enough as it is. We don't know need to fuck people into the ground. Everyone else is already doing it!"
-
----
-
-"Well as I said:
-
-A pie has been split into 10000 little slices.
-
-The rules are:
-
-You get to spend lots for a 1 in 100 chance for a super tiny slice.
-
-Everyone else gets 100% chance all-you-can shots.
-"
-
-
-"
-It could've been different, but you had no problems at all throwing years away with zero while you rack it up on the other hand. That's just messed up.
-
-Actually, as a pragmatist (you have to be to write decent code), I think I would've done well if I had just kept doing what I Was doing 5 years ago rather than getting caught up in a spider web, and subsquently murdered. Only stretch in my life where I've been completely incapacitated, which will very likely lead to early death. Super nice people.
-"
-
----
-
-It's dumb as hell to mess with people who don't value you. It just brings you down and wastes pretty much everything. Worse than being alone. :)
-
-It's like less than 1% at best lol.
-
-1/1000.
-
-Basically pointless.
-
----
-
-I don't know.
-
-Far as I'm concerned nothing actually real was for me.
-
-Can't continue to repetively be messed up.
-
-I complained about time back then. Instead of listening, You just gave me 0 of it as you had something better to do.
-
-Why bother when you gave away 100s of hours of time, and still haven't given me shit, and even if i got any, it wouldn't be nothing in comparison.
-
-Bad road. Dead end.
+Happiness shouldn't turn you into an asshole to other people.
 "
 
 "
