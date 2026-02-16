@@ -1,5 +1,8 @@
 # r
 
+https://news.cuanschutz.edu/news-stories/study-finds-cannabis-usage-in-middle-aged-and-older-adults-associated-with-larger-brain-volume-better-cognitive-function
+
+
 "
 Anyway. Point is, life is hard enough as it is for most people.
 
