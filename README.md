@@ -1,6 +1,6 @@
 # r
 
-https://www.nytimes.com/2025/10/11/business/credit-cards-churners.html - "Damn. I'm not a churcher, but they abused it so much they're all putting once per lifetime language on SUBs."
+https://www.nytimes.com/2025/10/11/business/credit-cards-churners.html - "Damn. I'm not a churner, but they abused it so much they're all putting once per lifetime language on SUBs."
 
 ---
 
