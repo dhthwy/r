@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=3EPG2IiI9ek - "Yep. That's what you like."
+
 https://www.youtube.com/watch?v=9Xal33LNwok&t=762s - "Totally you. Definitely."
 
 https://www.youtube.com/shorts/P3iK_0pQKmU
