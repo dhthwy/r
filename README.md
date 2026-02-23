@@ -1,5 +1,18 @@
 # r
 
+"I mean I guess, but I'm operating under the bridge of 'no hope.' Cause even when there appears to have been, there really wasn't.
+
+I learn.
+
+I'm nearly eligible for elderly life insurance. It's just not right to play those ruthless games.
+
+You don't like it when people are ruthless to you.
+
+Why does health insurance substantially rise after 50? Risk of cardiac events, cancer, etc dramatically increase!
+
+This is especially true for people who are alone.
+"
+
 https://www.youtube.com/shorts/o8WHHnt9sh0
 
 ---
