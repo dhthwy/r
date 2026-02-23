@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/shorts/o8WHHnt9sh0
+
+---
+
 https://youtu.be/g1EyDN6x9rQ?t=164 - "They say hush, ya, just like that. I remember.
 
 Immediate for everyone else. And heaps and heaps of undivided. All I got was a hush and a knife.
