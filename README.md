@@ -1,5 +1,11 @@
 # r
 
+https://youtu.be/g1EyDN6x9rQ?t=164 - "They say hush, ya, just like that. I remember.
+
+Immediate for everyone else. And heaps and heaps of undivided. All I got was a hush and a knife.
+
+Guess it was always like that."
+
 "
 You wait wait wait until everyone's left the party, and that's how you know, they didn't care.
 
