@@ -1,5 +1,7 @@
 # r
 
+"It's fine. But I'm not happy. Kinda hard when operating at such a low energy, and knowing even that low level isn't likely to be matched."
+
 "I suppose."
 
 ---
