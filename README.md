@@ -1,5 +1,9 @@
 # r
 
+"I suppose."
+
+---
+
 "I mean I guess, but I'm operating under the bridge of 'no hope.' Cause even when there appears to have been, there really wasn't.
 
 I learn.
