@@ -1,5 +1,13 @@
 # r
 
+"Go be with your new man.
+
+Can't expect me to keep your secrets after all the harm you did to me.
+
+Besides, they're a fuckin asshole too, and with your whole support.
+
+Jerk. Treat people like you do. GET THE SAME TREATMENT RIGHT BACK."
+
 <img width="569" height="595" alt="Screenshot_20260225_153535" src="https://github.com/user-attachments/assets/3b05d3b0-aaf1-4101-a1bc-db0295ce3752" />
 
 
