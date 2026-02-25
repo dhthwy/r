@@ -1,5 +1,7 @@
 # r
 
+"Back to the regular programming, fuckin lyin dirty bitch."
+
 "Leaf turn - cancelled.
 
 https://www.youtube.com/watch?v=csm6jilQwcw
