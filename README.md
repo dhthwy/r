@@ -1,5 +1,7 @@
 # r
 
+"I was just postin blind for weeks out of habit and boredom. No sense in lookin cause it's all no-good-spoiled-ass from you anyway. Whenever I do I'm reminded of the filthy pos scum liar that you are :)"
+
 "Right now that bitch has it made.
 
 She's got money bags from bman.
