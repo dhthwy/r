@@ -1,6 +1,6 @@
 # r
 
-"You're lucky where you're at. Business is cheap there. You have to pay $200-$300+ just to register one here. While that may not be a lot, it is for people with side hustles."
+"You're lucky where you're at. Business is cheap there. You have to pay $200-$300+ per year just to register one here. While that may not be a lot, it is for people with side hustles."
 
 ---
 
