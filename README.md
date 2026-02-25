@@ -1,5 +1,18 @@
 # r
 
+"Right now that bitch has it made.
+
+She's got money bags from bman.
+
+And the dick that the bitch is building with in prep to take over.
+
+But dick's got it made too. Dick reaps all the benefits without havin to take care of the bitch.
+
+Bman's gettin played.
+
+They scammed me too. And believe it. That dick is a piece of shit.
+"
+
 
 <img width="607" height="603" alt="Screenshot_20260225_162847" src="https://github.com/user-attachments/assets/1a314d5c-cdd9-46cc-865d-981dc20781c4" />
 
