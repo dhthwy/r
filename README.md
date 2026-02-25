@@ -1,6 +1,6 @@
 # r
 
-"Keep your pledge them. And fuck off, asshole."
+"Keep your pledge to them. And fuck off, asshole."
 
 "Oh nevermind then.
 
