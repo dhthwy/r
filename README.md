@@ -1,5 +1,14 @@
 # r
 
+"Leaf turn - cancelled.
+
+https://www.youtube.com/watch?v=csm6jilQwcw
+
+Fuck you. Fuck you. Fuck you.
+
+Can't say it enough. Fuck you everyday. Fuck you every nanosecond.
+"
+
 "```Burned bridges [x]```"
 
 "Keep your pledge to them. And fuck off, asshole."
