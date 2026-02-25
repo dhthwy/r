@@ -1,6 +1,7 @@
 # r
 
-![Uploading Screenshot_20260225_162847.png…]()
+
+<img width="607" height="603" alt="Screenshot_20260225_162847" src="https://github.com/user-attachments/assets/1a314d5c-cdd9-46cc-865d-981dc20781c4" />
 
 
 
