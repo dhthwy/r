@@ -1,5 +1,7 @@
 # r
 
+"Keep your pledge them. And fuck off, asshole."
+
 "Oh nevermind then.
 
 Don't worry. It's been like 2 weeks since I've looked at anything, and certainly not them.
