@@ -1,5 +1,8 @@
 # r
 
+<img width="569" height="595" alt="Screenshot_20260225_153535" src="https://github.com/user-attachments/assets/3b05d3b0-aaf1-4101-a1bc-db0295ce3752" />
+
+
 https://www.youtube.com/shorts/bFbhf4cEyU4 - "So much fun! :D =D enjoy the cock lyin hoe."
 
 "I'm here to fuck shit up. Just like you did to me. Remember filthy bitch? Fuckin assholes. That'll be the difference."
