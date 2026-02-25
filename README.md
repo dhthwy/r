@@ -1,5 +1,7 @@
 # r
 
+"I'm here to fuck shit up. Just like you did to me. Remember filthy bitch? Fuckin assholes. That'll be the difference."
+
 "Back to the regular programming, fuckin lyin dirty bitch."
 
 "Leaf turn - cancelled.
