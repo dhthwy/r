@@ -1,5 +1,9 @@
 # r
 
+![Uploading Screenshot_20260225_162847.png…]()
+
+
+
 "Go be with your new man.
 
 Can't expect me to keep your secrets after all the harm you did to me.
