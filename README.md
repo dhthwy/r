@@ -1,5 +1,14 @@
 # r
 
+"Well, they said you would do nothing but fuck me up - which is what you have done. 
+
+It must be nice to have a side kick who shares in your enjoyment of ruining lives. You and Dick.
+
+I saw just how far you go and what you do for people you do care about, so your horseshit bullshit lies from your no-good-spoiled-ass doesn't fly anymore. Fake ass. Spit on you. IT'S GONNA BE SO MUCH FUN HANDLING THIS DEBT! 
+"
+
+---
+
 "Had to turn the ac on full blast. My bp is thru the roof. Thinking of you REALLY pisses me off. What a god damn waste. Thinking I can believe in something. No friend does what you do! STUPID. Maybe you'll get lucky and I'll have a cardiac arrest. 
 
 Bully #1 was actually you. Took YEARS to finally figure that out. The big lie. You f'd up when you exposed it by way of your bully and your scams. Bet you couldn't wait to fuck me over in that way. I understand inflicting that kind of harm that makes you happy- it was easy to see it certainly made them happy. You're simply horrible abominable people. And you love it.
