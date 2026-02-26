@@ -6,7 +6,7 @@ But I told you to get your dick out of my ass. Since you intended it to be this 
 
 DOOR SWINGS BOTH WAYS ASSHOLES.
 
-You want to know everything from me you fuckin sicko?
+You want to know everything from me you fuckin sicko? Play your sabotage games with what you learn?
 
 I can play that game too!
 "
