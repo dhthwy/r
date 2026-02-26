@@ -1,6 +1,6 @@
 # r
 
-"Yeaaa. They thought it was so cool to keep this private thing public. That fucking bitch scammed my ass and made certain it stayed like this = ZERO freedom of expression.
+"Yeaaa. They thought it was so cool to keep this private thing public. That fucking bitch scammed my ass and made certain it stayed like this = ZERO freedom of expression JUST to keep her dick hard.
 
 But I told you to get your dick out of my ass. Since you intended it to be this way owing to the jerks you are, I'll give that motherfucker a reason to look at my private.
 
