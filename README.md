@@ -1,5 +1,9 @@
 # r
 
+<img width="719" height="593" alt="Screenshot_20260226_174904" src="https://github.com/user-attachments/assets/5992709d-bd90-4f95-a430-bd34c2d09b9e" />
+
+"I fucking hate scammers."
+
 "I have a card to play but it's super low and dirty. Thinking on this, it is def something you would do if you were in my shoes. Should I stoop to your fucking filthy ass level?"
 
 "Well, they said you would do nothing but fuck me up - which is what you have done. 
