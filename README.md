@@ -2,6 +2,9 @@
 
 https://cyberpost.co/why-do-adults-taunt/ - "Great job in supporting that behavior though, fake ass snake bitch.
 
+'2. Why do people taunt online?
+Online taunting, also known as cyberbullying' - Very interesting. Bully #2. HAHA it's UNFATHOMABLE you thought I'd believe ANYTHING that EVER comes outta your lyin ass mouth again after #2. You're an insult to my mind.
+
 'Oh, it's all someone's fault.' - NOPE. ALL LIES. BECAUSE YOU SUPPORTED THE TAUNTING AND SCAMS.
 
 You like that huh? you enjoy hurting people with your bullies? yaa. You rewarded it!
