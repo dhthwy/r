@@ -1,5 +1,7 @@
 # r
 
+"I have a card to play but it's super low and dirty. Thinking on this, it is def something you would do if you were in my shoes. Should I stoop to your fucking filthy ass level?"
+
 "Well, they said you would do nothing but fuck me up - which is what you have done. 
 
 It must be nice to have a side kick who shares in your enjoyment of ruining lives. You and Dick.
