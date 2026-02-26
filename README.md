@@ -1,5 +1,23 @@
 # r
 
+"
+You can be a pile of horse dung all day.
+
+You can have your taunting fly on shit.
+
+I don't care anymore.
+
+I don't give a fuck about a taunting FLY on SHIT.
+
+Your very existence is an authentic abomination. An affront to all that is humanely decent.
+
+You're a scourge to my conscience. The most inauthentic, most unclean. Uglier than the devil's asshole itself.
+
+Bman is an angel. Must be protecting the world from your devil ass. I mean, he did warn me that you're evil.
+
+You proved it with your taunting fly.
+"
+
 "NEWS FLASH MOTHERFUCKERS: I DON'T GIVE A FUCK. I DON'T GIVE A FUCK ABOUT ANYONE WHO TREATS ME LIKE THAT. YOU DON'T DESERVE A GRAIN OF RESPECT. FUCK THAT BITCH FOR BEING A FAKE ASS LIAR. I DON'T RESPECT FAKE ASS FRIENDS AND LIARS. YOU DON'T WANNA BE RESPECTFUL AND NICE AND DECENT? FUCK YOU THEN."
 
 "Yeaaa. They thought it was so cool to keep this private thing public. That fucking bitch scammed my ass and made certain it stayed like this = ZERO freedom of expression JUST to keep her dick hard.
