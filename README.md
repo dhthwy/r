@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=9JsyyjhHN3k - "The only thing worse than a snake are TWO snakes."
+
 https://www.youtube.com/watch?v=IwV90NvsmAI
 
 "
