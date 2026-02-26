@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=IwV90NvsmAI
+
 "
 You can be a pile of horse dung all day.
 
@@ -16,7 +18,11 @@ You're a scourge to my conscience. The most inauthentic, most unclean. Uglier th
 Bman is an angel. Must be protecting the world from your devil ass. I mean, he did warn me that you're evil.
 
 You proved it with your taunting fly.
+
+Can't scam me no more. NO MORE OF THAT SATISFACTION FOR YOU.
 "
+
+---
 
 "NEWS FLASH MOTHERFUCKERS: I DON'T GIVE A FUCK. I DON'T GIVE A FUCK ABOUT ANYONE WHO TREATS ME LIKE THAT. YOU DON'T DESERVE A GRAIN OF RESPECT. FUCK THAT BITCH FOR BEING A FAKE ASS LIAR. I DON'T RESPECT FAKE ASS FRIENDS AND LIARS. YOU DON'T WANNA BE RESPECTFUL AND NICE AND DECENT? FUCK YOU THEN."
 
