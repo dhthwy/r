@@ -1,5 +1,14 @@
 # r
 
+https://cyberpost.co/why-do-adults-taunt/ - "Great job in supporting that behavior though, fake ass snake bitch.
+
+'Oh, it's all someone's fault.' - NOPE. ALL LIES. BECAUSE YOU SUPPORTED THE TAUNTING AND SCAMS.
+
+You like that huh? you enjoy hurting people? yaa. You rewarded it!
+
+MY TURN.
+" 
+
 https://www.youtube.com/watch?v=9JsyyjhHN3k - "The only thing worse than a snake are TWO snakes."
 
 https://www.youtube.com/watch?v=IwV90NvsmAI
