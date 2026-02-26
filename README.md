@@ -1,5 +1,8 @@
 # r
 
+<img width="369" height="587" alt="Screenshot_20260226_175828" src="https://github.com/user-attachments/assets/097e5bfb-33c1-40e9-80dc-2cdc1ff73872" />
+
+
 <img width="719" height="593" alt="Screenshot_20260226_174904" src="https://github.com/user-attachments/assets/5992709d-bd90-4f95-a430-bd34c2d09b9e" />
 
 "I fucking hate scammers."
