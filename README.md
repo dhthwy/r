@@ -1,5 +1,12 @@
 # r
 
+"Had to turn the ac on full blast. My bp is thru the roof. Thinking of you REALLY pisses me off. What a god damn waste. Thinking I can believe in something. No friend does what you do! STUPID. Maybe you'll get lucky and I'll have a cardiac arrest. 
+
+Bully #1 was actually you. Took YEARS to finally figure that out. The big lie. You f'd up when you exposed it by way of your bully and your scams. Bet you couldn't wait to fuck me over in that way. I understand inflicting that kind of harm that makes you happy- it was easy to see it certainly made them happy. You're simply horrible abominable people. And you love it.
+
+Fuck my life? I can return payment 1000x. I have NOTHING to live for. Don't fuck with people who have nobody. You'll give someone something to live for - but you're not going to like it with the way you treat people.
+"
+
 https://cyberpost.co/why-do-adults-taunt/ - "Great job in supporting that behavior though, fake ass snake bitch.
 
 '2. Why do people taunt online?
