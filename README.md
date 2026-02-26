@@ -4,7 +4,7 @@ https://cyberpost.co/why-do-adults-taunt/ - "Great job in supporting that behavi
 
 'Oh, it's all someone's fault.' - NOPE. ALL LIES. BECAUSE YOU SUPPORTED THE TAUNTING AND SCAMS.
 
-You like that huh? you enjoy hurting people? yaa. You rewarded it!
+You like that huh? you enjoy hurting people with your bullies? yaa. You rewarded it!
 
 MY TURN.
 " 
