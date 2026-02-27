@@ -1,5 +1,7 @@
 # r
 
+"Way to slam someone on the floor! But you've always kept me down. It's what you do! Over n over n over again. Any excuse you get to do it. It's what you enjoy. It's what THEY enjoy. That's why there's taunting! You did it. They did it. You fucking love tearing people down to the floor. THIS IS MY THERAPY NOW."
+
 "Should've said it was all about that dick. I would've believed that. It isn't about fucking seatbelts. Every chance was squandered because suckin a cock you already sucked a million times was far more important! AFTER EVERYTHING. THAT'S JUST FUCKIN DISCUSTING.
 
 YOU DESERVE DISCUSTING IN RETURN! I'LL BE FUCKIN DISCUSTING TOO!"
