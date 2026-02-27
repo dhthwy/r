@@ -1,5 +1,13 @@
 # r
 
+"I have better things to do than to waste my time for someone who chose to screw me over every chance they got because it was more important to spend extra time playing with some cock instead.
+
+THis isn't jealously. I'm fixin to go nuclear. Think I give a fuck about anything? You straight fucked me up for MANY YEARS. THEN YOU HAD SOME MOTHERFUCKER TAUNT ME AT THE SAME TIME YOU WERE FUCKIN EM.
+
+I'm ready for hell =D"
+
+---
+
 "ROFL. Yes that is exactly what it was. It was precisely the reason you were too busy playing with their dick instead of spending a short amount of time saying hello to me both times back to back.
 
 OHHH it's also the reason for the taunting. It was about seatbelts! LOL."
