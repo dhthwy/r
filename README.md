@@ -1,5 +1,12 @@
 # r
 
+"Last year around this time you told me a rare truth: 'I'm not on your side.'
+
+I guess I didn't want to believe that you were a fraud and the real bully all along. But then you backed it up copiously with real action, and I was forced to believe.
+"
+
+---
+
 "It wasn't routine critical business that couldn't wait - That I would understand.
 
 It was routine fun. You put that over your promise to heal, or at least put an end to a nightmare.
