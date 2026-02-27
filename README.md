@@ -1,5 +1,7 @@
 # r
 
+"This could've gone down a completely different path if you had one GRAIN of respect and kindness toward me. But that's not what you're about. You're discusting filthy pig who has no real sense of ethics. And if you hadn't fucked me up so badly with your scams for so long, I would've let it go."
+
 "Way to slam someone on the floor! But you've always kept me down. It's what you do! Over n over n over again. Any excuse you get to do it. It's what you enjoy. It's what THEY enjoy. That's why there's taunting! You did it. They did it. You fucking love tearing people down to the floor. THIS IS MY THERAPY NOW."
 
 "Should've said it was all about that dick. I would've believed that. It isn't about fucking seatbelts. Every chance was squandered because suckin a cock you already sucked a million times was far more important! AFTER EVERYTHING. THAT'S JUST FUCKIN DISCUSTING.
