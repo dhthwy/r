@@ -1,5 +1,20 @@
 # r
 
+<img width="386" height="569" alt="Screenshot_20260227_103056" src="https://github.com/user-attachments/assets/fbf86011-093e-4336-b39b-c5e9feb59be8" />
+
+"I'm the only one that can cook. Can't do it tho. So they get shit quick meals. Same as me.
+
+I'm sure you know all about that. You loves to put people in that place so they can face the world angry and say 'i would love to fucking do things but my god damned body isn't cooperating with me! and i can't fucking see straight, hear straight, or concentrate! So give me a god damn break.
+
+OH you are just lazy sir!
+
+You loves putting people in that place!
+
+It really is death!
+"
+
+---
+
 You are such a fan of the trauma. No joke at all when I say ruined lives. Years of it.
 
 ```
