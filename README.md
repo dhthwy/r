@@ -1,6 +1,8 @@
 # r
 
-"ROFL. Yes that is exactly what it was. It was precisely the reason you were too busy playing with their dick instead of spending a short amount of time saying hello to me both times back to back."
+"ROFL. Yes that is exactly what it was. It was precisely the reason you were too busy playing with their dick instead of spending a short amount of time saying hello to me both times back to back.
+
+OHHH it's also the reason for the taunting. It was about seatbelts! LOL."
 
 ---
 
