@@ -1,5 +1,9 @@
 # r
 
+"ROFL. Yes that is exactly what it was. It was precisely the reason you were too busy playing with their dick instead of spending a short amount of time saying hello to me both times back to back."
+
+---
+
 https://www.goodreads.com/quotes/354533-karma-comes-after-everyone-eventually-you-can-t-get-away-with
 
 "So exciting to be a part of it!"
