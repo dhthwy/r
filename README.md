@@ -1,5 +1,7 @@
 # r
 
+"It's more the principle than anything. You are a straight up scumbag and so are they. ALL THAT SHIT you put me thru and you do that? WHAT THE FUCK. You aint no friend of mine."
+
 "I have better things to do than to waste my time for someone who chose to screw me over every chance they got because it was more important to spend extra time playing with some cock instead.
 
 THis isn't jealously. I'm fixin to go nuclear. Think I give a fuck about anything? You straight fucked me up for MANY YEARS. THEN YOU HAD SOME MOTHERFUCKER TAUNT ME AT THE SAME TIME YOU WERE FUCKIN EM.
