@@ -1,5 +1,9 @@
 # r
 
+"Should've said it was all about that dick. I would've believed that. It isn't about fucking seatbelts. Every chance was squandered because suckin a cock you already sucked a million times was far more important! AFTER EVERYTHING. THAT'S JUST FUCKIN DISCUSTING.
+
+YOU DESERVE DISCUSTING IN RETURN! I'LL BE FUCKIN DISCUSTING TOO!"
+
 "It's more the principle than anything. You are a straight up scumbag and so are they. ALL THAT SHIT you put me thru and you do that? WHAT THE FUCK. You aint no friend of mine."
 
 "I have better things to do than to waste my time for someone who chose to screw me over every chance they got because it was more important to spend extra time playing with some cock instead.
