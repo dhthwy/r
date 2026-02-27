@@ -1,5 +1,17 @@
 # r
 
+https://www.morningbrew.com/stories/wealthy-americans-account-half-consumer-spending
+
+https://www.cnbc.com/2026/02/26/block-laying-off-about-4000-employees-nearly-half-of-its-workforce.html
+
+"
+'Dorsey said he expects other companies to similarly overhaul their workforces as they see more efficiency gains from “intelligence tools."'
+
+Absolutely. AI costs lots of money. They have to shed workforce to pay for it. Business is mandated to make profit.
+
+Only people at the top will be ok in the new era that is coming.
+"
+
 <img width="386" height="569" alt="Screenshot_20260227_103056" src="https://github.com/user-attachments/assets/fbf86011-093e-4336-b39b-c5e9feb59be8" />
 
 "I'm the only one that can cook. Can't do it tho. So they get shit quick meals. Same as me.
