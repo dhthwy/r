@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/watch?v=0d0XmAi68qc&t=1789s
+
+---
+
 https://www.morningbrew.com/stories/wealthy-americans-account-half-consumer-spending
 
 https://www.cnbc.com/2026/02/26/block-laying-off-about-4000-employees-nearly-half-of-its-workforce.html
