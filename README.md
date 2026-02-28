@@ -1,5 +1,25 @@
 # r
 
+"
+The first time I thought maybe y'all were being nice - choosing peace, choosing to fix. But no. That wasn't the case. It was a rude scam.
+
+I should've learned my lesson the first time instead of trusting you again.
+
+Togetherness has made you an asshole. But I didn't do anything wrong to you at that point. I was trying my damnest to patiently wait for you to give me something.
+
+You think I would talk like that if I thought you had any decency in you?
+
+Things changed after you showed me you were screwing me over deliberately.
+
+I was NOT Like this, anywhere near like this 6 years ago.
+
+Asshole was your choice. You also chose not to _objectively_ listen. No excuse for you. You're supposed to be educated enough to seek truth objectively rather than thru some tainted lens 'just cause.'
+
+No point though. I've already said all of this a million times. It boils down to basic human decency and respect. If you had any of that, I wouldn't be talkin shit on this.
+"
+
+---
+
 https://www.youtube.com/watch?v=0d0XmAi68qc&t=1789s
 
 ---
