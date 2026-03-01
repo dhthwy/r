@@ -1,5 +1,14 @@
 # r
 
+"No one cares for the old and sick. Not one bit.
+
+Shouldn't have been too hard to say: 'look I need 20 minutes to take care of something.'
+
+One kind gesture like that would've made all the difference in the world.
+
+I wasn't worth it.
+"
+
 "Or maybe you were just trying to turn me into an asshole. But why? That has its own costs. By definition, assholes don't care for how they impact other people. I'm pretty sure you killed me. Seriously.
 
 Led someone to an early grave and turned them into an asshole? How did you think that would go down?
