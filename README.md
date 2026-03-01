@@ -1,6 +1,16 @@
 # r
 
 "
+When someone has already had it shoveled onto them until buried... I mean cmon, don't add more unless you're wanting to eat some yourself.
+
+Tired of people claiming 'bs.' These things are real and they don't just go away.
+
+Stress-induced hyperalgesia
+
+By contrast, exposure to prolonged/chronic stress or future-oriented anxiety or depression generally leads to hyperalgesia i.e. an exacerbation of pain, referred toas stress-induced hyperalgesia (Rhudy& Meagher, 2000). Stress-induced hyperalgesia is of clinical relevance, given that a high percentage of chronic pain patients have some form of stress-related psychiatric disorder. For example, patients with pain disorders are more likely to develop anxiety compared to the healthy population.
+"
+
+"
 I don't know if this is bs or not, but it sure makes sense.
 
 I've had infections and inflamation from it. I had a big knot on my arm from one. That's how my WHOLE body feels all the time.
