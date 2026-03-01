@@ -1,5 +1,16 @@
 # r
 
+"You have like 100 spoons for the day, and I have like 1.
+
+The only time I feel ok is when I first wake up after a good sleep. Doesn't last long. It bit later the crushing numbing pain throbs thru my bones. All day, everyday. For years. No reprieves. Except for those rare moments after a good rest.
+
+And that doesn't say anything about my deteriorating brain.
+
+There was enough time to get on my feet. Maybe all I needed was for you to be kind to me for once in your life.
+
+Ending the nightmare wouldn't have been hard at all if you had simply put me first for a tiny bit. If you're never put first, you never get a thing.
+"
+
 https://www.psychologytoday.com/us/blog/full-catastrophe-parenting/202403/what-is-spoon-theory-and-why-is-it-important
 
 "You know full well you can't grow old in this state. Early death is guaranteed without any support.
