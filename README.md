@@ -1,5 +1,20 @@
 # r
 
+"Or maybe you were just trying to turn me into an asshole. But why? That has its own costs. By definition, assholes don't care for how they impact other people. I'm pretty sure you killed me. Seriously.
+
+Led someone to an early grave and turned them into an asshole? How did you think that would go down?
+
+in '20 I had just taken placement tests for college. I was seriously considering attending. I placed into all college level courses.
+
+But I took issue with benefits vs costs, especially considering unstable home life. I talked to people in industry - no one was happy - most were having to hop jobs every few years. 
+
+Talked to people who went and got their degree. Most told me it wasn't worth it or didn't even help. And going into it old, I was warned the social aspect of it probably would suck.
+
+I felt like it was stupid to spend that time and money on something with no damn job security. It helps ALOT to have good people who want to see you succeed. More minds are better than one. Increases your odds greatly at finding something.
+
+Then I found you. And well, I got dead instead.
+"
+
 "
 When someone has already had it shoveled onto them until buried... I mean cmon, don't add more unless you're wanting to eat some yourself.
 
