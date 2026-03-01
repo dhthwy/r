@@ -1,5 +1,14 @@
 # r
 
+"so imagine you're in a state of system collapse where your body is simply not functioning in a healthy manner. 
+
+And so you're doing whatever you can to help you escape. 
+
+at first, it's like what the hell it's continuation of the same connection that's never worked and it's very upsetting.
+
+and you make that known but then later you're like OK you know you don't want it to be this way you want peace so you get on your knees you pull their pants down and you give them fellatio and still they spit on you while you're doing that and this did not make me comfortable.
+"
+
 "No one cares for the old and sick. Not one bit.
 
 Shouldn't have been too hard to say: 'look I need 20 minutes to take care of something.'
