@@ -1,5 +1,10 @@
 # r
 
+"Well actually search lasted for years.
+
+The amount of waste is insane. Even more insane to still be throwing things away years later.
+"
+
 "No one single thing. From a holistical pov there wasn't a single act of kindness, ever.
 
 Search for days until the party is over and then get shot, and knowing full well everyone else was having a grand time. It was humiliation. Lovely design was right. It really showed me what your words could not."
