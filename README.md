@@ -1,6 +1,6 @@
 # r
 
-https://www.psychologytoday.com/us/blog/the-forgiving-life/201808/how-overcome-the-dangers-humiliation
+https://www.psychologytoday.com/us/blog/the-forgiving-life/201808/how-overcome-the-dangers-humiliation - "be nice if this helped. i dont know. it wasctaken to the extremes long time against me. always innovating ways to push the extremes and abusig my trust."
 
 "maybe it's because there is nothing good to reminisce. reminiscing humiliation brings so much joy to the world. Deal it. Share it. Reminis in it. Only thing there is to remember. Absolutely fabulous."
 
