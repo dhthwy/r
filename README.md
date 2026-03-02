@@ -1,5 +1,8 @@
 # r
 
+"maybe it's because there is nothing good to reminisce. reminiscing humiliation brings so much joy to the world. Deal it. Share it. Reminis in it."
+
+
 https://www.goodreads.com/quotes/530483-i-will-live-by-the-gun-and-die-by-the
 
 <img width="497" height="612" alt="Screenshot_20260302_101436" src="https://github.com/user-attachments/assets/b71923bd-b5f2-48b3-a336-2e5a5fdc2044" />
