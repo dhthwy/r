@@ -1,5 +1,8 @@
 # r
 
+<img width="807" height="601" alt="Screenshot_20260302_095651" src="https://github.com/user-attachments/assets/9639e55f-7bd8-4eba-b6d5-da58e68f527a" />
+
+
 <img width="814" height="607" alt="Screenshot_20260302_095407" src="https://github.com/user-attachments/assets/c3c63d72-b2c9-4af7-a616-12b5279a03e4" />
 
 
