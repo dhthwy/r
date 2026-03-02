@@ -1,6 +1,6 @@
 # r
 
-"No one single thing. From a holistical pov there wasn't a single act of kindness.
+"No one single thing. From a holistical pov there wasn't a single act of kindness, ever.
 
 Search for days until the party is over and then get shot, and knowing full well everyone else was having a grand time. It was humiliation. Lovely design was right. It really showed me what your words could not."
 
