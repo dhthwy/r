@@ -1,5 +1,18 @@
 # r
 
+<img width="1072" height="757" alt="Screenshot_20260302_094420" src="https://github.com/user-attachments/assets/e9f478f6-7a57-41f4-b07c-9f86cfba5721" />
+
+
+"
+There's a gift for you.
+
+Humiliating people is your fav pastime to do with your loved ones.
+
+I know from personal experience you check all them boxes!"
+
+
+---
+
 "so imagine you're in a state of system collapse where your body is simply not functioning in a healthy manner. 
 
 And so you're doing whatever you can to help you escape. 
