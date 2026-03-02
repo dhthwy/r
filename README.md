@@ -1,5 +1,9 @@
 # r
 
+"No one single thing. From a holistical pov there wasn't a single act of kindness.
+
+Search for days until the party is over and then get shot, and knowing full well everyone else was having a grand time. It was humiliation. Lovely design was right. It really showed me what your words could not."
+
 https://www.psychologytoday.com/us/blog/the-forgiving-life/201808/how-overcome-the-dangers-humiliation - "be nice if this helped. i dont know. it wasctaken to the extremes long time against me. always innovating ways to push the extremes and abusig my trust."
 
 "maybe it's because there is nothing good to reminisce. reminiscing humiliation brings so much joy to the world. Deal it. Share it. Reminis in it. Only thing there is to remember. Absolutely fabulous."
