@@ -1,6 +1,5 @@
 # r
 
-<img width="652" height="413" alt="Screenshot_20260302_095117" src="https://github.com/user-attachments/assets/1a8cda38-200d-4e92-ad0e-0226299ae767" />
 
 
 <img width="1072" height="757" alt="Screenshot_20260302_094420" src="https://github.com/user-attachments/assets/e9f478f6-7a57-41f4-b07c-9f86cfba5721" />
