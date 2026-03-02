@@ -1,6 +1,6 @@
 # r
 
-"maybe it's because there is nothing good to reminisce. reminiscing humiliation brings so much joy to the world. Deal it. Share it. Reminis in it."
+"maybe it's because there is nothing good to reminisce. reminiscing humiliation brings so much joy to the world. Deal it. Share it. Reminis in it. Only thing there is to remember. Absolutely fabulous."
 
 
 https://www.goodreads.com/quotes/530483-i-will-live-by-the-gun-and-die-by-the
