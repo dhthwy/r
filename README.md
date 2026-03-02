@@ -8,7 +8,9 @@ There's a gift for you.
 
 Humiliating people is your fav pastime to do with your loved ones.
 
-I know from personal experience you check all them boxes!"
+I know from personal experience you check all them 'Yes' boxes!
+
+No limits. lol."
 
 
 ---
