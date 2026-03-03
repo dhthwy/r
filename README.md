@@ -1,5 +1,7 @@
 # r
 
+"Straight left me stranded with me in a state of system collapse. I would've NEVER done that to you before you showed me your truth."
+
 "See it doesn't matter what I think I see. It's been proven a few times already that anything positive was, in fact, terribly negative.
 
 So the only thing I have to rely on is history.
