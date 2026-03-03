@@ -1,5 +1,7 @@
 # r
 
+https://youtu.be/WotHtY63sXQ?t=373 - "More true than not."
+
 https://www.youtube.com/watch?v=m_N9vc6hpn8
 
 "People tend to remember all the fine details from traumatizing things. You may forget. I won't."
