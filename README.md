@@ -1,5 +1,7 @@
 # r
 
+"People tend to remember all the fine details from traumatizing things. You may forget. I won't."
+
 "Straight left me stranded with me in a state of system collapse. I would've NEVER done that to you before you showed me your truth."
 
 "See it doesn't matter what I think I see. It's been proven a few times already that anything positive was, in fact, terribly negative.
