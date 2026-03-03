@@ -1,5 +1,16 @@
 # r
 
+"You stuck the po on me.
+
+Giving me 5 minutes then became 'me vs them.' I remember you saying 'ya sure could've won that but at the cost of the other.' 
+
+Real sweet knowing 5 minutes was too much for them.
+
+At any point, just that little bit would've changed everything.
+
+Playing PO games was just stupid. You don't like it either, huh?
+"
+
 <img width="365" height="546" alt="Screenshot_20260303_161033" src="https://github.com/user-attachments/assets/7a3fff3d-497f-46a1-b071-4ca0dd119bb2" />
 
 
