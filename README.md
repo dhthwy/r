@@ -1,5 +1,18 @@
 # r
 
+"See it doesn't matter what I think I see. It's been proven a few times already that anything positive was, in fact, terribly negative.
+
+So the only thing I have to rely on is history.
+
+You change shit up from one day to the next.
+
+One minute it's 'ASAP. Gonna get this nipped.' then it's 'I'm wit my PO boss now. They got a smile on their face in public but in private there's a middle finger pointing your way.'
+
+All the while me begging, me pleading, me calling out for help long long time.
+
+It was so very sweet. I'll always remember the big and the little things.
+"
+
 "You stuck the po on me.
 
 Giving me 5 minutes then became 'me vs them.' I remember you saying 'ya sure could've won that but at the cost of the other.' 
