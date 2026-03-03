@@ -1,5 +1,8 @@
 # r
 
+<img width="365" height="546" alt="Screenshot_20260303_161033" src="https://github.com/user-attachments/assets/7a3fff3d-497f-46a1-b071-4ca0dd119bb2" />
+
+
 "The only thing I needed was to be nice to me for a little bit and then go from there before throwing other things at me. It was only fair. You don't make the calls though, and that choice buried me."
 
 "I wish I could be nicer. But I keep remembering the nightmares. The indifference. The humiliation. I was 100% on your side. I 100% believed in you. Take a hammer and smash that into pieces, and that's all I remember."
