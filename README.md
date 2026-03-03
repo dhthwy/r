@@ -1,5 +1,10 @@
 # r
 
+"How were they able to take out iran's leadership? Under the guise of a deal of course.
+
+Cut the chicken heads right off in one fell swoop. Probably won't turn out well though.
+"
+
 "I haven't been able to work at my desk for nearly 6 years. Now it's used only for storage. There's some dead flowers on it too.
 
 In the beginning I begged you for help. I couldn't sit at my desk for anymore than 2 hours. The longer I'd sit, the more overwhelming it became.
