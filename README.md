@@ -1,5 +1,13 @@
 # r
 
+https://youtu.be/3hryXDRgMo0?t=88
+
+https://youtu.be/iAgX6qlJEMc?t=35
+
+https://genius.com/Jimmy-ruffin-what-becomes-of-the-brokenhearted-lyrics
+
+---
+
 https://www.youtube.com/watch?v=m_N9vc6hpn8
 
 "People tend to remember all the fine details from traumatizing things. You may forget. I won't."
