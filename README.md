@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/ZdLzPNGkcN8
+
 "One insists on eating bread all day.
 
 The other insists on eating all day and has kidney failure from all the trash theyve consumed.
