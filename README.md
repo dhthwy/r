@@ -1,5 +1,16 @@
 # r
 
+"One insists on eating bread all day.
+
+The other insists on eating all day and has kidney failure from all the trash theyve consumed.
+
+Since quick usually means trash food, one has to slave over the stove for hours to not eat poison since the grocery stores seem to stock mostly poison-infused food. Wtf.
+
+If you're elderly and too disabled to cook for yourself, you're kinda screwed.
+"
+
+---
+
 https://www.youtube.com/shorts/g6-UBG6SJwM
 
 https://www.youtube.com/shorts/0A8hBVewGoo - "Charlie or Hank. Dr Jekyll or Ms Hyde."
