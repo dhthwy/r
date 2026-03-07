@@ -7,6 +7,8 @@ The other insists on eating all day and has kidney failure from all the trash th
 Since quick usually means trash food, one has to slave over the stove for hours to not eat poison since the grocery stores seem to stock mostly poison-infused food. Wtf.
 
 If you're elderly and too disabled to cook for yourself, you're kinda screwed.
+
+It's the American way though. Americans are fucking stupid.
 "
 
 ---
