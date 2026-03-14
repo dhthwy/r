@@ -13,7 +13,9 @@ Historically and theologically, grace is an act of self-mastery.
 
 Humans have a primal urge to "gorge" when food is present—"eating like a pig."
 
-The Discipline: By forcing yourself to wait while the food is hot and smelling delicious, you are proving that you are a human being with a soul, not just an animal with an appetite. You are putting Spirit before Flesh.
+The Discipline: By forcing yourself to wait while the food is hot and smelling delicious,
+you are proving that you are a human being with a soul,
+not just an animal with an appetite. You are putting Spirit before Flesh.
 
 If you are eating with a partner, children, or an elderly parent, grace acts as a social synchronization.
 
