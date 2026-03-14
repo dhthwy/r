@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/shorts/BBl0ail4EcI - "Well you do say grace, it's just for them only. I won't be shown that anymore in any fashion that f's me up. I personally guarantee it! 
+
+I mostly blind post these days. Afterall, murderers and psychological terrorists should learn the fruits of their labor."
+
 https://github.com/user-attachments/assets/400a6f45-5c06-489e-9784-d031daae52ec 
 
 - "Dirty tricks. Fool me once. Fool me twice. There won't be a thrice."
