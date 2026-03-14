@@ -1,6 +1,8 @@
 # r
 
-https://github.com/user-attachments/assets/400a6f45-5c06-489e-9784-d031daae52ec - "Dirty tricks. Fool me once. Fool me twice. There won't be a thrice."
+https://github.com/user-attachments/assets/400a6f45-5c06-489e-9784-d031daae52ec 
+
+- "Dirty tricks. Fool me once. Fool me twice. There won't be a thrice."
 
 ```
 Historically and theologically, grace is an act of self-mastery.
