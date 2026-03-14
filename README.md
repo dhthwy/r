@@ -32,7 +32,7 @@ No way in hell will I subject myself to some warmonger who gleefully smiles wils
 
 I knew you'd try to f me over again- it's in my bones. That's why I'm always pissed.
 
-I guess you chose to have me hate you for life. People don't talk like that unless they've gone far down that road.
+I guess you chose to have me hate you for life. People don't talk like I did unless they've gone far down that road.
 
 I don't pay much mind these days anyway.
 
