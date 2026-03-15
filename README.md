@@ -1,5 +1,20 @@
 # r
 
+https://github.com/user-attachments/assets/7559fa92-c037-465f-a745-686d7e86bb7e
+
+https://www.goodreads.com/book/show/34454589-the-handmaid-s-tale
+
+https://www.goodreads.com/book/show/16981.Invisible_Man
+
+https://www.goodreads.com/book/show/39280444-speak
+
+https://www.goodreads.com/book/show/17125.One_Day_in_the_Life_of_Ivan_Denisovich
+
+https://www.goodreads.com/book/show/11337.The_Bluest_Eye
+
+
+"
+
 "Actually the discard from that ungrateful / ungraceful bitch came in '24. None of it was for me. They truly showed how far they go for someone they do care for. Wasn't me tho. Never was. THEY STRIPPED AND LEFT ME WITHOUT A VOICE. And that's ok with me now. The devils can have eachother."
 
 https://www.youtube.com/shorts/BBl0ail4EcI - "Well you do say grace, it's just for them only. I won't be shown that anymore in any fashion that f's me up. I personally guarantee it! 
