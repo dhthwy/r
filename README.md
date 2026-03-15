@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/Otn3QQQtZKY
+
 https://github.com/user-attachments/assets/7559fa92-c037-465f-a745-686d7e86bb7e
 
 https://www.goodreads.com/book/show/34454589-the-handmaid-s-tale
