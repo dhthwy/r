@@ -1,6 +1,11 @@
 # r
 
-https://www.reddit.com/r/CPTSD/comments/1dl3001/how_do_you_stop_feeling_violated/
+https://www.reddit.com/r/CPTSD/comments/1dl3001/how_do_you_stop_feeling_violated/ -
+
+"
+I hear you. It feels like everyone has their own selfish agenda and it's impossible to find the ones that want a genuine connection instead of just using and discarding you." - "Most def your agenda. Very interesting how you treated me last year when you thought there was no use for me. Didn't give a damn about your promises, healing, or having a genuine connection. You thought you had all you needed, and I was simply discarded as a result. 
+
+Demon!"
 
 https://www.youtube.com/shorts/BBl0ail4EcI - "Well you do say grace, it's just for them only. I won't be shown that anymore in any fashion that f's me up. I personally guarantee it! 
 
