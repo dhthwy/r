@@ -1,5 +1,7 @@
 # r
 
+https://www.reddit.com/r/CPTSD/comments/1dl3001/how_do_you_stop_feeling_violated/
+
 https://www.youtube.com/shorts/BBl0ail4EcI - "Well you do say grace, it's just for them only. I won't be shown that anymore in any fashion that f's me up. I personally guarantee it! 
 
 I mostly blind post these days. Afterall, murderers and psychological terrorists should learn the fruits of their labor."
