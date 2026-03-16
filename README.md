@@ -1,6 +1,12 @@
 # r
 
-https://www.youtube.com/shorts/TYNAst2S3jQ - "Haha. You are such a real life Walter."
+https://www.youtube.com/shorts/TYNAst2S3jQ - "Haha. You are such a real life Walter.
+
+'Just because you shot Jesse James does not make you Jesse James.' "
+
+https://www.ibtimes.com/neanderthal-dna-race-asians-have-closer-link-multiple-breeding-events-studies-say-1822230
+
+---
 
 <img width="573" height="608" alt="Screenshot_20260316_064524" src="https://github.com/user-attachments/assets/a31a2e32-1a51-46e2-8a2a-1e56a55d199e" />
 
