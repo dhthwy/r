@@ -1,5 +1,18 @@
 # r
 
+"
+Perhaps you should've ended it with a promise-fulfilling good, real memory instead of showing me again and again what a graceless, dispeccable shit you are.
+
+I don't give a god damn if some dirty PO boss security dog dick ordered you to piss on your people when YOU are the one who gave them that power in the first place. Are they spending 100s of thousands on you? I don't fucking thing so. Where the fuck does that power come from then? Oh, that's right. 'The Power Of The Dick.'
+
+Stupid fucking choice making enemies of FREE HANDS that may have been there for you in the future. YOU'RE TOO RICH FOR THIS BITCH!
+
+YOU MADE YOUR CHOICE. I MADE MINE. WE NEVER SHIT ON THE SACRED GROUNDS OF THE CHURCH WITHOUT FIRST SAYING GRACE, WITHOUT A BLESSING, WITHOUT FREEING THE PRISONER.
+
+I PERSONALLY GUARANTEE YOU WILL NEVER FUCK ME OVER AGAIN. SCOURGE!"
+
+---
+
 https://www.youtube.com/shorts/Otn3QQQtZKY
 
 https://github.com/user-attachments/assets/7559fa92-c037-465f-a745-686d7e86bb7e
