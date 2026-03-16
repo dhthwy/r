@@ -16,7 +16,7 @@ What you do and say has great impact to the world around you. This fucked up wor
 
 You defiled something very special to me.
 
-I provided my whole map after a long time. Later on it was 'taking dat.' I know god damn well it was on purpose. You had time to eat some dick, but no time for grace and freedom.
+I provided my whole map after a long time patient. Later on it was 'taking dat.' I know god damn well it was on purpose. You had time to eat some dick, but no time for grace and freedom.
 
 Your character IS ASS.
 "
