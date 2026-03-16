@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/TYNAst2S3jQ - "Haha. You are such a real life Walter."
+
 <img width="573" height="608" alt="Screenshot_20260316_064524" src="https://github.com/user-attachments/assets/a31a2e32-1a51-46e2-8a2a-1e56a55d199e" />
 
 "That was 20 years ago. May be the only photo in existence from that time. Fit. Healthy. 
