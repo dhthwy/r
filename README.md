@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=JHm-8p7thbk - "Now that you've conquered and desecrated all the fertile land in the country. I know you've celebrated it 100s of times already. This one speaks to home."
+
 https://youtu.be/ZOFoNSAwREI?t=15 - "You wouldn't understand things like that. Maybe too much neanderthal in you."
 
 https://www.youtube.com/shorts/TYNAst2S3jQ - "Haha. You are such a real life Walter.
