@@ -1,5 +1,26 @@
 # r
 
+<img width="573" height="608" alt="Screenshot_20260316_064524" src="https://github.com/user-attachments/assets/a31a2e32-1a51-46e2-8a2a-1e56a55d199e" />
+
+"That was 20 years ago. May be the only photo in existence from that time. Fit. Healthy. 
+
+Women tried. But I couldn't speak. Hell, it's almost that many years since I ran into you.
+
+See I've always had devil beast jerks like you entrenched in my life.
+
+The type of people who beat their dogs for fun. Abused dogs have a certain distinct behavior.
+
+You only care for your own god damn selfish pleasure - Flesh Over Spirit - you aint nothing but an animal.
+
+What you do and say has great impact to the world around you. This fucked up world is the result of too many people like you in it.
+
+You defiled something very special to me.
+
+I provided my whole map after a long time. Later on it was 'taking dat.' I know god damn well it was on purpose. You had time to eat some dick, but no time for grace and freedom.
+
+Your character IS ASS.
+"
+
 "
 Perhaps you should've ended it with a promise-fulfilling good, real memory instead of showing me again and again what a graceless, dispeccable shit you are.
 
