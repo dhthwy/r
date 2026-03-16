@@ -4,7 +4,7 @@
 
 "That was 20 years ago. May be the only photo in existence from that time. Fit. Healthy. 
 
-Women tried. But I couldn't speak. Hell, it's almost that many years since I ran into you.
+Women tried. But I couldn't speak. Hell, it's almost that many years since I ran into you. Nothing for holidays. Nothing at all during all that time. Lame ass excuses turned out to be two-faced lies.
 
 See I've always had devil beast jerks like you entrenched in my life.
 
