@@ -1,5 +1,7 @@
 # r
 
+https://youtu.be/ZOFoNSAwREI?t=15 - "You wouldn't understand things like that. Maybe too much neanderthal in you."
+
 https://www.youtube.com/shorts/TYNAst2S3jQ - "Haha. You are such a real life Walter.
 
 'Just because you shot Jesse James does not make you Jesse James.' "
