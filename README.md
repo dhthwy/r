@@ -1,5 +1,11 @@
 # r
 
+https://www.factualamerica.com/breaking-bad/walts-ego-the-true-villain-of-breaking-bad
+
+https://www.youtube.com/shorts/o8WHHnt9sh0
+
+https://www.youtube.com/watch?v=0d0XmAi68qc&t=1780s
+
 https://www.cnn.com/2026/03/17/politics/joe-kent-resigns-iran-war
 
 ![td](https://github.com/user-attachments/assets/f5f7b552-e0d2-4e58-9d6f-c2ed8161b955)
