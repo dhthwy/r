@@ -1,5 +1,23 @@
 # r
 
+"I pleaded with you well before-hand to NOT deploy the nuclear weapon and desecrate the little fertility that remains.
+
+For you a joke. For me profound significance.
+
+You planted corn, made it a warzone, and dropped a nuke on my birthplace.
+
+
+Yankees do not understand will never understand
+
+To me oh my goodness they're birth places and burial grounds. They're battlefields where our ancestors fought.
+
+Places where you and I we learn to walk to talk to pray.
+
+Places we made friendships and oh yes fell in love.
+
+And they're the incarnation of all our memories and all that we are.
+" 
+
 https://www.youtube.com/watch?v=-GrB6qrGWjk&t=150s
 
 https://www.youtube.com/watch?v=-GrB6qrGWjk&t=351s
