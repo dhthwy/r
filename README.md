@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/watch?v=-GrB6qrGWjk&t=150s
+
+https://www.youtube.com/watch?v=-GrB6qrGWjk&t=351s
+
 https://www.factualamerica.com/breaking-bad/walts-ego-the-true-villain-of-breaking-bad
 
 https://www.youtube.com/shorts/o8WHHnt9sh0
