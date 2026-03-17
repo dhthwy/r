@@ -1,5 +1,7 @@
 # r
 
+https://www.cnn.com/2026/03/17/politics/joe-kent-resigns-iran-war
+
 ![td](https://github.com/user-attachments/assets/f5f7b552-e0d2-4e58-9d6f-c2ed8161b955)
 
 
