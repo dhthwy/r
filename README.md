@@ -1,5 +1,8 @@
 # r
 
+![td](https://github.com/user-attachments/assets/f5f7b552-e0d2-4e58-9d6f-c2ed8161b955)
+
+
 https://www.youtube.com/watch?v=D_h7hcK6pFs
 
 ```
