@@ -1,5 +1,27 @@
 # r
 
+"
+And I did. I mentioned it was sacred to me. I also said there was a fly in my only bowl of soup.
+
+Had you really fought for me, none of that would've been a problem- no cause to complain at any point.
+
+No. You fought for them. You made me the fly in one of their many soups.
+
+Had you simply been polite and graceful about it, it would've been alright.
+
+I'm old. I'll never know what it feels like to be wanted and needed.
+
+Maybe when I was fit and healthy in my youth. Now merely trying to spark a convo is harassment.
+
+Wasted 6 fucking years on someone who wouldn't even muster a plan for a cup of coffee.
+
+None of these are issues for the people you truly care for. You blessed them. Cursed me.
+
+You'll never understand though.
+"
+
+---
+
 "I pleaded with you well before-hand to NOT deploy the nuclear weapon and desecrate the little fertility that remains.
 
 For you a joke. For me profound significance.
