@@ -15,6 +15,8 @@ Maybe when I was fit and healthy in my youth. Now merely trying to spark a convo
 
 Wasted 6 fucking years on someone who wouldn't even muster a plan for a cup of coffee.
 
+Excuses turned to be bullshit two-faced lies. That's what I gathered from them.
+
 None of these are issues for the people you truly care for. You blessed them. Cursed me.
 
 You'll never understand though.
