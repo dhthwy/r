@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/UYJzzBtgOWA - "I understand it's like this. But just because you're with your one and only doesn't make it right to be inconsiderate and trashy to other people."
+
 "
 And I did. I mentioned it was sacred to me. I also said there was a fly in my only bowl of soup.
 
