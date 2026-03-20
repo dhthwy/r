@@ -15,7 +15,7 @@ You planted corn, made it a warzone, and dropped a nuke on my birthplace.
 Fuck you everyday. Backstabbin bitch.
 "
 
-"
+```
 [Verse 1]
 Feel like I'm getting deja vu
 This is like Iraq War number two
@@ -55,7 +55,8 @@ All for Netanyahu
 [Chorus]
 And Iran, Iran's so far away
 Bomb Iran, I'll bomb them night and day
-"
+
 And Iran, Iran's so far away
 Bomb Iran, I'll bomb them night and day
 But destroy USA
+```
