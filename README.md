@@ -1,5 +1,7 @@
 # r
 
+"YOU BOMBED IRAN. That's your song. Fuck the US. Fuck the flag."
+
 http://backstabbing-bitch.urbanup.com/6008218
 
 "Wow, it's amazing how accurate that describes YOU!
