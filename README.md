@@ -1,5 +1,13 @@
 # r
 
+http://backstabbing-bitch.urbanup.com/6008218
+
+"Wow, it's amazing how accurate that describes YOU!
+
+I remember EVERYTHING. It was super interesting the way you told me I was cut out. Let's harm him some more! let's waste more of his paper! Let's do it together! 'Hey I'm suckin their dick! At your place See? FUckin graceless slut.'
+
+I WANNA SEE THAT MOTHERFUCKER LITERALLY CURB STOMPED. IT TAKES EVERYTHING TO HOLD BACK. SO WATCH IT, CUNT."
+
 "
 Enjoy the many adventures you'll have this year with your loved ones. Just like last year.
 "
