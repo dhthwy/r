@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/p1uqDHhiEmo - "That's how they make you find out. They loves to do it that way. You know it too. Never trust a filthy backstabbin unethical bitch."
+
 "YOU BOMBED IRAN. That's your song. Fuck the US. Fuck the flag."
 
 http://backstabbing-bitch.urbanup.com/6008218
