@@ -14,6 +14,7 @@ You planted corn, made it a warzone, and dropped a nuke on my birthplace.
 
 Fuck you everyday. Backstabbin bitch.
 "
+
 "
 [Verse 1]
 Feel like I'm getting deja vu
