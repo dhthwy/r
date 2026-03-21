@@ -1,5 +1,27 @@
 # r
 
+"I had one simple request that could've easily been handled in 5 minutes or less. Or preferrably long long before, which could've saved lots.
+
+Instead I got this:
+
+<img width="497" height="612" alt="Screenshot_20260302_101436" src="https://github.com/user-attachments/assets/f9c99a6f-3c24-4815-b376-cfa07ce5642d" />
+
+<img width="807" height="601" alt="Screenshot_20260302_095651" src="https://github.com/user-attachments/assets/46c58ba5-ebe8-4971-a137-06924bc0b431" />
+
+<img width="814" height="607" alt="Screenshot_20260302_095407" src="https://github.com/user-attachments/assets/29514419-2e5f-4f20-bb18-a3494d36ed1f" />
+
+Because all you care about is this:
+
+<img width="852" height="894" alt="Screenshot_20260314_161349" src="https://github.com/user-attachments/assets/490a067e-a19e-48a4-b424-8dca33c186b1" />
+
+And you super enjoy doing this to me to please them, because, well, you're just a backstabbing unethical bitch whose word is worth less than dirt:
+
+<img width="984" height="793" alt="Screenshot_20260321_154631" src="https://github.com/user-attachments/assets/26d858a3-5ed0-466a-8051-8e8cc7e8a1fa" />
+
+Whores are a dime a dozen. If that's your intent, you're fucking horrible at it, but don't think you're anything special. You aint.
+
+"
+
 "consistency is the hobgoblin of little minds"
 
 "Never assume, for when you do, you make an ass out of u and me."
