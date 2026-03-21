@@ -1,5 +1,9 @@
 # r
 
+"consistency is the hobgoblin of little minds"
+
+"Never assume, for when you do, you make an ass out of u and me."
+
 "I don't even pay attention to your slop anymore.
 
 It's just a repeat. Same old lame ass shit. Nothing changed.
@@ -7,6 +11,8 @@ It's just a repeat. Same old lame ass shit. Nothing changed.
 I, however, do have oodles of weight and loss you have gifted me. Half of which came from your devil 2.0.
 
 They want to fuck with me eh? You do it together eh?
+
+You enjoy war eh? You like fucking people up?
 "
 
 https://www.theatlantic.com/ideas/2026/03/trump-iran-war-allies/686423/ - "So true. It is absolutely mind boggling how similar to trump you and all of your people are. You're either just like him or a copycat wannabe. Trump embodies the true american spirit. I wouldn't at all be surprised if he pulls off an autocracy."
