@@ -1,5 +1,7 @@
 # r
 
+https://www.theatlantic.com/ideas/2026/03/trump-iran-war-allies/686423/ - "So true. It is absolutely mind boggling how similar to trump you and all of your people are. You're either just like him or a copycat wannabe. Trump embodies the true american spirit. I wouldn't at all be surprised if he pulls off an autocracy."
+
 https://www.youtube.com/shorts/p1uqDHhiEmo - "That's how they make you find out. They loves to do it that way. You know it too. Never trust a filthy backstabbin unethical bitch."
 
 "YOU BOMBED IRAN. That's your song. Fuck the US. Fuck the flag."
