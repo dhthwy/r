@@ -2,7 +2,22 @@
 
 https://www.youtube.com/watch?v=T0BlXy3Roj4
 
+https://genius.com/Method-man-bring-the-pain-lyrics
+
+
+https://genius.com/Ol-dirty-bastard-brooklyn-zoo-lyrics
+
 https://www.youtube.com/watch?v=GRblYfKwa88
+
+
+https://www.youtube.com/watch?v=h3EJICKwITw
+
+https://genius.com/Juice-wrld-all-girls-are-the-same-lyrics
+
+
+https://genius.com/King-von-hoes-aint-shit-lyrics
+
+https://www.youtube.com/watch?v=ZHt4U0c12GQ
 
 "You'll have many many more nights. Wouldn't want to take any of them away. Their ego would never recover. Feed that shit, bitch."
 
