@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/watch?v=T0BlXy3Roj4
+
+https://www.youtube.com/watch?v=GRblYfKwa88
+
 "You'll have many many more nights. Wouldn't want to take any of them away. Their ego would never recover. Feed that shit, bitch."
 
 "I had one simple request that could've easily been handled in 5 minutes or less. Or preferrably long long before, which could've saved lots.
