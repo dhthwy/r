@@ -1,34 +1,17 @@
 # r
 
+"I don't even pay attention to your slop anymore.
+
+It's just a repeat. Same old lame ass shit. Nothing changed.
+
+I, however, do have oodles of weight and loss you have gifted me. Half of which came from your devil 2.0.
+
+They want to fuck with me eh? You do it together eh?
+"
+
 https://www.theatlantic.com/ideas/2026/03/trump-iran-war-allies/686423/ - "So true. It is absolutely mind boggling how similar to trump you and all of your people are. You're either just like him or a copycat wannabe. Trump embodies the true american spirit. I wouldn't at all be surprised if he pulls off an autocracy."
 
-https://www.youtube.com/shorts/p1uqDHhiEmo - "That's how they make you find out. They loves to do it that way. You know it too. Never trust a filthy backstabbin unethical bitch."
 
-"YOU BOMBED IRAN. That's your song. Fuck the US. Fuck the flag."
-
-http://backstabbing-bitch.urbanup.com/6008218
-
-"Wow, it's amazing how accurate that describes YOU!
-
-I remember EVERYTHING. It was super interesting the way you told me I was cut out. Let's harm him some more! let's waste more of his paper! Let's do it together! 'Hey I'm suckin their dick! At your place See? So sorry you did all that for nothing haha!' 
-
-FUckin graceless slut.
-
-I WANNA SEE THAT MOTHERFUCKER LITERALLY CURB STOMPED. IT TAKES EVERYTHING TO HOLD BACK. SO WATCH IT, CUNT."
-
-"
-Enjoy the many adventures you'll have this year with your loved ones. Just like last year.
-"
-
-https://www.youtube.com/watch?v=pAv1Lf-tmAs&t=19s
-
-"I pleaded with you well before-hand to NOT deploy the nuclear weapon and desecrate the little fertility that remains.
-
-For you a joke. For me profound significance.
-
-You planted corn, made it a warzone, and dropped a nuke on my birthplace.
-
-Fuck you everyday. Backstabbin bitch.
 "
 
 ```
