@@ -20,6 +20,8 @@ And you super enjoy doing this to me to please them, because, well, you're just 
 
 Whores are a dime a dozen. If that's your intent, you're fucking horrible at it, but don't think you're anything special. You aint.
 
+Too little. Too late. Too RICH for this bitch!
+
 "
 
 "consistency is the hobgoblin of little minds"
