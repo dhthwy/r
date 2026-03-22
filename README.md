@@ -1,5 +1,40 @@
 # r
 
+"I remember back then it was
+
+'seat at the table'
+
+'you're not optional'
+
+'you're not alone'
+
+In reality,
+
+'When I get wrapped in that cock I just have to do whatever they say.
+
+And
+
+You aint get no seat at no table.
+
+You was option.
+
+Hell yea you is alone.
+
+We just want to see you fall so we can laugh at you again!'
+"
+
+"HAHAHAHAHA.
+
+I SPOTTED THE SAME PATTERN! OOOHHH. YEAH.
+
+You got BIG BALLS tryin the same old SHIT.
+
+Your cred is up their ass.
+
+Demon Cocksucker!
+"
+
+
 https://www.youtube.com/watch?v=T0BlXy3Roj4
 
 https://genius.com/Method-man-bring-the-pain-lyrics
