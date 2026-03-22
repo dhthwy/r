@@ -1,5 +1,11 @@
 # r
 
+
+
+https://github.com/user-attachments/assets/a03e05e2-edbf-471e-90a8-9468f4d8bd02
+
+
+
 "I remember back then it was
 
 'seat at the table'
