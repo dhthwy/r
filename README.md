@@ -1,5 +1,14 @@
 # r
 
+"I know you don't care for me.
+
+If I wasn't so stupid I would've respected the signs years ago.
+
+No. I was dumb. I let you destroy me.
+
+Now I'm paraylized. Dead in the head. Body dead.
+
+Show the world my fuckin middle finger for you. You truly showed me the real world. You're right. GOD is dead. The DEVIL won. Earth is full of demons like you now.
 "
 
 For them. Every night. For me, 'just be patient. you option. you can wait till I feeeeeel like it.' So sweet of you. That's how I know only the negative is true for me. All the good stuff reserved only for them. NICE. That was your fuckin balance. You're great at algebra, I'll give you that!
