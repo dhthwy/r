@@ -1,6 +1,31 @@
 # r
 
+"
 
+Said if I spotted insincerity, I'd be gone.
+
+You gave me a new war: 'They're most important. I'm invading their country.'
+
+I fuckin remember.
+
+Said I needed 5 minutes. If 5 minutes was all it took to save them, you would do it today. For me, 6 years, still fuckin nothin.
+
+See I wasn't aware there was an east and west rivalry. One is heavily blockaded. From my first pov, there was the only the blocked. These are things you simply don't understand. YOU ASSUME other people know everything. But I think you do it on purpose.
+
+Also. Nervous people make mistakes. This is why we provide some coaching, or ya know, have a fuckin god damn plan. You sure did give them a plan.
+
+Have you ever slept overnight in a mall?
+
+You wonder why this. You wonder why that. You never stopped to think.
+
+You claimed a this and you claimed a that, but it was all bullshit.
+
+For sure, your cred is up their ass.
+
+YOU MADE ME.
+"
+
+---
 
 https://github.com/user-attachments/assets/a03e05e2-edbf-471e-90a8-9468f4d8bd02
 
