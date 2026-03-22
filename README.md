@@ -2,6 +2,8 @@
 
 "
 
+For them. Every night. For me, 'just be patient. you option. you can wait till I feeeeeel like it.' So sweet of you. That's how I know only the negative is true for me. All the good stuff reserved only for them. NICE. That was your fuckin balance.
+
 Said if I spotted insincerity, I'd be gone.
 
 You gave me a new war: 'They're most important. I'm invading their country.'
