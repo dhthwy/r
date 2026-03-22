@@ -2,7 +2,7 @@
 
 "
 
-For them. Every night. For me, 'just be patient. you option. you can wait till I feeeeeel like it.' So sweet of you. That's how I know only the negative is true for me. All the good stuff reserved only for them. NICE. That was your fuckin balance.
+For them. Every night. For me, 'just be patient. you option. you can wait till I feeeeeel like it.' So sweet of you. That's how I know only the negative is true for me. All the good stuff reserved only for them. NICE. That was your fuckin balance. You're great at algebra, I'll give you that!
 
 Said if I spotted insincerity, I'd be gone.
 
