@@ -20,6 +20,8 @@ You was option.
 
 Hell yea you is alone.
 
+Perfect design!
+
 We just want to see you fall so we can laugh at you again!'
 "
 
@@ -31,7 +33,7 @@ You got BIG BALLS tryin the same old SHIT.
 
 Your cred is up their ass.
 
-Demon Cocksucker!
+Demon CRACKHEAD Cocksucker!
 "
 
 
