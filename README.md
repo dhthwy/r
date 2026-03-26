@@ -1,10 +1,24 @@
 # r
 
-<img width="482" height="379" alt="Screenshot_20260323_224214" src="https://github.com/user-attachments/assets/9da48487-df6f-4612-8a96-30eb6a4d1e83" />
+https://www.youtube.com/watch?v=dAUO005otHE&t=1093s
 
-"Euthanasia today, oncologist tomorrow."
+https://www.youtube.com/shorts/8jxHD6ExJ8E
 
+"
 
+I don't know.
+
+I think of you now only with yours. And they'll always be there. Always in my mind.
+
+You really drove that fact home.
+
+I asked for you to find your own thing, at least for the first.
+
+But my voice carried the weight of a stranger in a crowd.
+
+If I learned this lesson when I still had my youth, I think I would've been ok.
+
+Life is fragile. Doesn't take much to ruin one.
 "
 
 ```
