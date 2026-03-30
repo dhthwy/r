@@ -24,7 +24,7 @@ I dont Fucking need an idiot whore or their idiot pimp. You disgusting.
 
 The fact you try to have your pimp manage me. Ew. Dirty fucking pig whore.
 
-'My pimp has to be dripping me, and I had to have 12 cocks before you. Rules are rules.'
+'My pimp has to be dripping from me, and I had to have 12 cocks before you. Rules are rules.'
 "
 
 
