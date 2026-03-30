@@ -2,7 +2,7 @@
 
 "HAHA. These dirty dicks and cunts love to dish what they can't handle.
 
-Excuse me? The level of mean isn't anywhere NEAR balanced.
+Excuse me? The level of mean isn't anywhere NEAR balanced. Doesn't even scratch the surface on the level you did me motherfucker!
 
 I really ought to be going much much farther!
 
