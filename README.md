@@ -1,5 +1,15 @@
 # r
 
+https://youtu.be/VbfpW0pbvaU?si=SU6dgBokZphWWj9-
+
+https://youtu.be/E8gmARGvPlI
+
+"anything else would break my personal guarantee contract. some people stick to their words unlike your untrustworthy filthy spoiled cunt and ass. someone else will have to stich me up.
+
+you too discusting for this bitch.
+"
+
+
 "
 Feel free to reach out to me, for lunch, when you're in town. My # got changed, but you have my email.
 
