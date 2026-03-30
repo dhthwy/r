@@ -9,6 +9,8 @@ https://youtu.be/E8gmARGvPlI
 you too disgusting for this bitch
 
 wouldnt want to keep your dirty ass from the trough of cock
+
+i have invested in blindfolds. skanky hoe
 "
 
 
