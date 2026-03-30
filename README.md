@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/c2PLlB2ya7Q
+
 https://youtu.be/VbfpW0pbvaU?si=SU6dgBokZphWWj9-
 
 https://youtu.be/E8gmARGvPlI
@@ -21,6 +23,8 @@ Plenty of whores near me who dont fuck with peoples time and money.
 I dont Fucking need an idiot whore or their idiot pimp. You disgusting.
 
 The fact you try to have your pimp manage me. Ew. Dirty fucking pig whore.
+
+'My pimp has to be dripping me, and I had to have 12 cocks before you. Rules are rules.'
 "
 
 
