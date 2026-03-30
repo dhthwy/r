@@ -1,5 +1,14 @@
 # r
 
+"HAHA. These dirty dicks and cunts love to dish what they can't handle.
+
+Excuse me? The level of mean isn't anywhere NEAR balanced.
+
+I really ought to be going much much farther!
+
+It's the god damned truth!
+"
+
 'slimeballs. Guess what? I MEANT AND MEAN EVERY FUCKING WORD.'
 
 https://www.youtube.com/shorts/c2PLlB2ya7Q
