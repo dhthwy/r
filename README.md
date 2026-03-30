@@ -1,5 +1,7 @@
 # r
 
+'slimeballs. Guess what? I MEANT AND MEAN EVERY FUCKING WORD.'
+
 https://www.youtube.com/shorts/c2PLlB2ya7Q
 
 https://youtu.be/VbfpW0pbvaU?si=SU6dgBokZphWWj9-
