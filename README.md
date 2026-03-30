@@ -14,7 +14,11 @@ i have invested in blindfolds.
 
 big dicks were more important than sticking to your word and promise. time cant fix that. fill that mouf. open widr
 
-skanky hoe
+skanky hoe.
+
+Plenty of whores near me who dont fuck with peoples time and money.
+
+I dont Fucking need an idiot whore.
 "
 
 
