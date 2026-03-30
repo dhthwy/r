@@ -1,7 +1,7 @@
 # r
 
 "
-Feel free to reach out to me, for lunch, when you're in town.
+Feel free to reach out to me, for lunch, when you're in town. My # got changed, but you have my email.
 
 I check in roughly once a week but even that will cease. There's simply no purpose in it anymore.
 "
