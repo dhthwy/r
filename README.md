@@ -6,7 +6,9 @@ https://youtu.be/E8gmARGvPlI
 
 "anything else would break my personal guarantee contract. some people stick to their words unlike your untrustworthy filthy spoiled cunt and ass. someone else will have to stich me up.
 
-you too disgusting for this bitch.
+you too disgusting for this bitch
+
+wouldnt want to keep your dirty ass from the trough of cock
 "
 
 
