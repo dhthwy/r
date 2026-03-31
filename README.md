@@ -1,5 +1,13 @@
 # r
 
+"Had you shown me a little class then I wouldn't even be writing this.
+
+You wouldn't understand class though. You can read about it, but you don't understand it. You're simply not wired or raised for it.
+
+Your old excuses don't work anymore - All fraud. I realized this after you brought big dick into the picture who talk the same shit, play the same game, and you fuck me over all the same. Must be some cock fighting entertainment for you.
+
+Again, it takes someone with class to understand. You never did. Never will."
+
 "You're wonderful at tearing people apart. You're surgical with demolitions.
 
 Building great things? Helping people find hope? Helping people find their place in the world? Helping people find something to live for?
