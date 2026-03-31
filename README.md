@@ -1,6 +1,6 @@
 # r
 
-"Speaking of control. I didn't even have enough to arrange lunch or coffee. I didn't even have enough to sway you to give me a few minutes after all I did all of that - no, I was rejected more than once in that fashion.
+"Speaking of control. I didn't even have enough to arrange lunch or coffee. I didn't even have enough to sway you to give me a few minutes after all I did all of that - no, I was rejected more than once in that fashion. Promises? All fraud.
 
 Takes class and grace to understand how FUCKED UP that is. No. You don't have either of these things.
 
