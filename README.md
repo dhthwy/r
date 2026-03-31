@@ -1,5 +1,13 @@
 # r
 
+"Speaking of control. I didn't even have enough to arrange lunch or coffee. I didn't even have enough to sway you to give me a few minutes after all I did all of that - no, I was rejected more than once in that fashion.
+
+Takes class and grace to understand how FUCKED UP that is. No. You don't have either of these things.
+
+I believe that's a fact. You can pretend to have some, but you don't, and you never will. It's not who you are."
+
+---
+
 "Had you shown me a little class then I wouldn't even be writing this.
 
 You wouldn't understand class though. You can read about it, but you don't understand it. You're simply not wired or raised for it.
