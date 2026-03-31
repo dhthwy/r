@@ -1,5 +1,20 @@
 # r
 
+"You're wonderful at tearing people apart. You're surgical with demolitions.
+
+Building great things? Helping people find hope? Helping people find their place in the world? Helping people find something to live for?
+
+These things require class, which you simply don't have.
+
+Don't bother trying to find some. Anyone with class will figure you out quick for the fraud you are.
+
+Anyone or anything to do with you is going to be dirty.
+"
+
+http://classy.urbanup.com/6146634
+
+---
+
 "You can't defraud people at that scale without expecting anything in return :)
 
 Time and your pimp's talk was all you needed alright. For me to be certain.
