@@ -1,5 +1,33 @@
 # r
 
+"You can't defraud people at that scale without expecting anything in return :)
+
+Time and your pimp's talk was all you needed alright. For me to be certain.
+
+Apple didn't fall far from the tree. You both loves you some cock fightin.
+
+Fuck with people. Fuck people up for your own entertainment.
+
+You offer nothing good.
+
+Uncredible.
+
+Unreliable.
+
+Malicious.
+
+Deceiver.
+
+You have no real class. Just ass.
+
+That puts you in the bottom 99%.
+
+I can get that anywhere!"
+
+https://www.youtube.com/watch?v=5EZIGq-CZ1w
+
+---
+
 "HAHA. These dirty dicks and cunts love to dish what they can't handle.
 
 Excuse me? The level of mean isn't anywhere NEAR balanced. Doesn't even scratch the surface on the level you did me motherfucker!
