@@ -4,7 +4,9 @@
 
 Takes class and grace to understand how FUCKED UP that is. No. You don't have either of these things.
 
-I believe that's a fact. You can pretend to have some, but you don't, and you never will. It's not who you are."
+I believe that's a fact. You can pretend to have some, but you don't, and you never will. It's not who you are.
+
+Speaking of ghetto. You the ghettoist of them all. The filthy slums are deep inside you."
 
 ---
 
