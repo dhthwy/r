@@ -1,5 +1,7 @@
 # r
 
+"Can't fool a logician."
+
 "Take yo head out yo ass once in awhile. Or their ass. Get some fresh air. Can't see things in there."
 
 "
