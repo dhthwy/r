@@ -3,7 +3,9 @@
 
 https://www.youtube.com/watch?v=LvZJxdF1J60&t=68s
 
-"Any decent person would be appalled at the status quo. That was the real test. Too bad you weren't even a little on my side. I don't care for your hollow words. Easy to say. Your actions spoke very differently. Same ol' words as always. How can you expect actions to be any different?"
+"Any decent person would be appalled at the status quo. That was the real test. Too bad you weren't even a little on my side. I don't care for your hollow words. Easy to say. Your actions spoke very differently. Same ol' words as always. How can you expect actions to be any different?
+
+Staying at 10 years old?"
 
 ---
 
