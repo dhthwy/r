@@ -1,5 +1,7 @@
 # r
 
+"Take yo head out yo ass once in awhile. Or their ass. Get some fresh air. Can't see things in there."
+
 "
 You remind me of the senator from god father 2. Don't like me, just want to squeeze. I saw everything. 'But I'm squeezing they ass dry! We can share the proceeds! What you yackin aboot?'
 
