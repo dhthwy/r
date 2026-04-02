@@ -1,5 +1,44 @@
 # r
 
+"
+Oh yes, the place where magic happens.
+
+All the best...for those you like.
+
+All excuses gone...for those you like.
+
+All the share...for those you like.
+
+All yes...for those you like.
+
+All contact...for those you like.
+
+Truly, you showed me how far you go, what you'd burn... for those you like.
+
+Any pig can ransack a table
+
+Only class can set one.
+
+You wrecked my shit.
+
+Eye for an eye. Pig for a pig. You got what you made. What you gave. Bitch. =D
+
+
+Where was the all bets are off?
+
+All understandings? Gone?
+
+Didn't have the class to tell me politely huh?
+
+You'll have many more.
+
+Maybe you'll be pigs to eachother! and love it!
+"
+
+https://www.youtube.com/watch?v=ZKd2F10BfeA
+
+---
+
 
 https://www.youtube.com/watch?v=LvZJxdF1J60&t=68s
 
