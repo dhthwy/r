@@ -8,7 +8,7 @@ I've tried everything I can think of, in many cases, more than once.
 
 But I always get blown up.
 
-I can't solve these problems.
+I can't solve these problems nor can I continue to get blown.
 
 There's real effort to show that something isn't wanted.
 
