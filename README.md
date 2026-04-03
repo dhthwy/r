@@ -1,90 +1,24 @@
 # r
 
-"
-Oh yes, the place where magic happens.
+"I don't have an identity.
 
-All the best...for those you like.
+I've tried everything I can think of, in many cases, more than once.
 
-All excuses gone...for those you like.
+But I always get blown up.
 
-All the share...for those you like.
+I can't solve these problems.
 
-All yes...for those you like.
+There's real effort to show that something isn't wanted.
 
-All contact...for those you like.
+But never was real effort to show that something is wanted.
 
-Truly, you showed me how far you go, what you'd burn... for those you like.
+Proof is in gore from being blowed up.
 
-Any pig can ransack a table
-
-Only class can set one.
-
-You wrecked my shit.
-
-Eye for an eye. Pig for a pig. You got what you made. What you gave. Bitch. =D
-
-
-Where was the all bets are off?
-
-All understandings? Gone?
-
-Didn't have the class to tell me politely huh?
-
-You'll have many more.
-
-Maybe you'll be pigs to eachother! and love it!
+And enemies made to keep the status quo.
 "
 
 https://www.youtube.com/watch?v=ZKd2F10BfeA
 
----
-
-
-https://www.youtube.com/watch?v=LvZJxdF1J60&t=68s
-
-"Any decent person would be appalled at the status quo. That was the real test. Too bad you weren't even a little on my side. I don't care for your hollow words. Easy to say. Your actions spoke very differently. Same ol' words as always. How can you expect actions to be any different?
-
-Staying at 10 years old?"
-
----
-
-"Can't fool a logician."
-
-"Take yo head out yo ass once in awhile. Or their ass. Get some fresh air. Can't see things in there."
-
-"
-You remind me of the senator from god father 2. Don't like me, just want to squeeze. I saw everything. 'But I'm squeezing they ass dry! We can share the proceeds! What you yackin aboot?'
-
-Believe me when I say I have my reasons for disgust.
-
-Ups are only hope. Downs are the killing of that hope.
-
-There are only downs on this ride.
-
-Thought someone would play a positive role?
-
-Need a king cobra for that, not a weasel.
-
-Size doesn't matter, but you keep thinkin it does.
-
-Kick the can down the road. Keep kickin it. What they waitin for? SOmething to happen.
-
-You're the most gullible. The most manipulatable. DOesn't take much to control you. Keep you thinking a way.
-
-Then boom.
-
-Fuck everything else. FUck family. Your worth is anchored to a bed post.
-
-But you're the same as them. That's what you like!
-
-They don't want to pay. They don't respect your world. If it falls apart.
-
-Only reason there would be any tears is from the return to the vacuum cleaner hose.
-
-
-Never have a woman for president. Everyone knows dick really runs the show.
-
-All woman are the same, right?"
 
 ---
 
