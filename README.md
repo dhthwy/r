@@ -1,32 +1,24 @@
 # r
 
-"I don't have an identity.
+"Needn't worry about a thing.
 
-Recall what happened because I have no known identity.
+You can have your magical spots, and all the rest, all to yourself.
 
-I've tried everything I can think of, in many cases, more than once.
+I'll never know your family. Even if I did, it wouldn't be the same, everyone would be much older.
 
-But I always get blown up.
+Age happens fast.
 
-I can't solve these problems nor can I continue to get blown.
+The best for them...for the ones you actually like.
 
-There's real effort to show that something isn't wanted.
+So I'm good.
 
-But never was real effort to show that something is wanted.
+If I find someone who offers family I can actually get to know, then great.
 
-Proof is in gore from being blowed up.
+If not, ok. Life's a bitch same as nature.
 
-And enemies made to keep the status quo.
+But that's not you or yours.
 "
-
-https://www.youtube.com/watch?v=ZKd2F10BfeA
-
 
 ---
 
 "I can't deal with the rollercoaster between other people."
-
-“If you are not a part of the solution, you are a part of the problem.”
-― Eldridge Cleaver
-
-"If the shoe fits, you must wear it."
