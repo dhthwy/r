@@ -39,6 +39,16 @@ Too late.
 You not only didn't unlock the door. You kept a hold on the lock to prevent it from unlocking.
 
 Life too short for jerks. No excuses. You were a jerk long time. Your people are jerks too!
+
+The consequences of fucking around with a selfish bitch such as yourself and your fuckin dick ass pimp for so long is staggering and probably unrecoverable at my age.
+
+What a selfish fuckin bitch you are.
+
+6 god damn years no talk, no real contact, and I AM SELFISH FOR REQUIRING A BIT OF PERSONAL REAL PRIVATE TIME?
+
+Too much for you to give, you say?
+
+Fuck you.
 "
 
 
