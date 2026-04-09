@@ -8,7 +8,7 @@ https://www.youtube.com/shorts/U_2aZenMiC8
 
 Just the opposite, actually. You fucked me up all the way and ruined the rest of mine.
 
-You wasted me 3x times in a row.
+You wasted me 3x times in a row because your head was too far up a pimp's ass.
 
 I said no, so you 10x'd me?
 
