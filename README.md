@@ -1,5 +1,50 @@
 # r
 
+https://www.youtube.com/shorts/Xh0IQG-lYCI
+
+https://www.youtube.com/shorts/U_2aZenMiC8
+
+"But you didn't put any wind in my sails.
+
+Just the opposite, actually. You fucked me up all the way and ruined the rest of mine.
+
+You wasted me 3x times in a row.
+
+I said no, so you 10x'd me?
+
+I don't think so!
+
+You didn't give me any options.
+
+You saw what happen when it appeared you were.
+
+But it was just you fucking me over again.
+
+Had you been polite about it, I would've been polite as it were in 24.
+
+You were an asshole to me. They were an asshole to me.
+
+You both 10x asshole to me.
+
+I'm not doin that again. Ever.
+
+You had plenty of time to decide to give me a private audience without assholes interfering.
+
+You could've taken that time to discuss things with me.
+
+YOu chose to not give me that. You made your choice. I made mine. That was the last choice.
+
+Too late.
+
+You not only didn't unlock the door. You kept a hold on the lock to prevent it from unlocking.
+
+Life too short for jerks. No excuses. You were a jerk long time. Your people are jerks too!
+"
+
+
+
+---
+
 "Needn't worry about a thing.
 
 You can have your magical spots, and all the rest, all to yourself.
