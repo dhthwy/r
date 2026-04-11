@@ -16,7 +16,7 @@ Wasted too many years.
 
 Maybe all I needed was a good friend.
 
-The op was there to give me a tiny slice before this stage.
+The ops were there to give me a tiny slice before this stage.
 
 You said no. I did not say no.
 
