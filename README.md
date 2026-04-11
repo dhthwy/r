@@ -4,7 +4,7 @@
 
 You don't know the reality, therefore it's only a dream.
 
-For one thing, I'm dead.
+For one thing, I'm dead. You think I'm joking but I am. For all intents and purposes. I am dead.
 
 Want doesn't matter for me anymore.
 
