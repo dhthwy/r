@@ -2,6 +2,12 @@
 
 https://genius.com/Wham-last-christmas-lyrics
 
+https://genius.com/The-supremes-you-keep-me-hangin-on-lyrics
+
+https://genius.com/Mary-j-blige-no-more-drama-lyrics
+
+
+
 "There's a million better things to spend my money on.
 
 Actually it's infinite. Cause anything to do with your lyin, fake, evil ass would be a waste.
