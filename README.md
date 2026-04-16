@@ -27,3 +27,8 @@ You have the power to make people retarded.
 That's what you do with your learnin. I know this from first hand experience.
 
 Only someone with grace knows how to set the table. You made the table retarded."
+
+"
+Walking away not to win, but because there is nothing left to win.
+
+Leaving the two assholes to their magic, knowing it's built on the wreckage of someone else."
