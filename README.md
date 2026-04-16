@@ -1,26 +1,29 @@
 # r
 
-"It won't work like how you think.
+https://www.youtube.com/watch?v=M5ZysX4Eih0&t=140s
 
-You don't know the reality, therefore it's only a dream.
+"It doesn't work.
 
-For one thing, I'm dead. You think I'm joking but I am. For all intents and purposes. I am dead.
+You both raised your middle fingers to me 2x in a row.
 
-Want doesn't matter for me anymore.
+Now if you truly cared and wanted to amend then you amend quick, and not years later.
 
-I won't be getting any better under these circumstances nor any circumstances you happen to dream up.
+But instead you did the same asshole shit again.
 
-You hammered my head one too many times.
+Forget the world, if you wern't an asshole, you would've freed.
 
-Wasted too many years.
+Can't cure asshole. Just like can't cure stupid.
 
-Maybe all I needed was a good friend.
+I don't have unlimited resources to throw away.
 
-The ops were there to give (eachother) a tiny slice of that before this stage.
+I told you you fucked me up too much.
 
-You said no. I did not say no.
+The job market is too trashy to be playin games too.
 
-I know who matters to you. It aint me.
+And I'm demented now.
 
-No dream will change that now.
-"
+You have the power to make people retarded.
+
+That's what you do with your learnin. I know this from first hand experience.
+
+Only someone with grace knows how to set the table. You made the table retarded."
