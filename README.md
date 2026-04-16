@@ -1,5 +1,15 @@
 # r
 
+https://genius.com/Wham-last-christmas-lyrics
+
+"There's a million better things to spend my money on.
+
+Actually it's infinite. Cause anything to do with your lyin, fake, evil ass would be a waste.
+
+FUck you again. Asshole."
+
+---
+
 https://www.youtube.com/watch?v=M5ZysX4Eih0&t=140s
 
 "It doesn't work.
