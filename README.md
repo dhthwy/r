@@ -1,5 +1,20 @@
 # r
 
+https://www.youtube.com/watch?v=K8LLF-46FN8
+
+"Switched my google account, and my, the music has changed.
+
+Now I can't listen to any music at all.
+
+If I do. It's usually something about sayin 'fuck you' :D
+"
+
+"
+When one has been harmed for a very long time, one gets used to it. And it becomes comfortable, like... like old leather. And finally... becomes so familiar that one can't ever remember feeling any other way.
+
+It's not you I hate. I hate what I became *because* of you.
+"
+
 https://www.youtube.com/watch?v=VbYUeORbd1s
 
 https://genius.com/Wham-last-christmas-lyrics
