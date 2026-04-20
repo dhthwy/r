@@ -1,4 +1,6 @@
-# r
+#
+
+"scammers gonna scam. they warn ya when ppl act like uur shady ass its acscam but i was srupid. fool no more. fuvk scamers."
 
 https://www.youtube.com/watch?v=K8LLF-46FN8
 
