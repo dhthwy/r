@@ -2,7 +2,7 @@
 
 https://www.youtube.com/shorts/kWBZXXYYlUk 
 
-"Selfish jerk. Your idea of competition was to help them block time and consequently block resolution. I did my part. 3 strikes. That's enough. Especially since you haven't changed a thing, and running the same old talk and scams.
+"Selfish jerk. Your idea of competition was to help them block time and consequently block resolution. Gee. No change there from the first. I did my part. 3 strikes. That's enough. Especially since you haven't changed a thing, and running the same old talk and scams.
 
 You're lucky I'm not as big of an asshole as you and your people are. You made an enemy alright. Fuck people over as bigly as you did, most people wouldn't hold back anything."
 
