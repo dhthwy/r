@@ -1,5 +1,11 @@
 #
 
+https://www.youtube.com/shorts/kWBZXXYYlUk 
+
+"Selfish jerk. Your idea of competition was to help them block time and consequently block resolution. I did my part. 3 strikes. That's enough. Especially since you haven't changed a thing, and running the same old talk and scams.
+
+You're lucky I'm not as big of an asshole as you and your people are."
+
 https://www.youtube.com/shorts/9Ugq84qRsmA
 
 https://www.youtube.com/watch?v=CiTEW_-vfs8
