@@ -1,5 +1,7 @@
 #
 
+https://www.youtube.com/watch?v=-51KCTiE2ZY
+
 https://www.youtube.com/shorts/kWBZXXYYlUk 
 
 "Selfish jerk. Your idea of competition was to help them block time and consequently block resolution. Gee. No change there from the first. I did my part. 3 strikes. That's enough. Especially since you haven't changed a thing, and running the same old talk and scams.
