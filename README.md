@@ -12,6 +12,8 @@ https://www.youtube.com/watch?v=CiTEW_-vfs8
 
 "People who don't make time to share are nothing to eachother. That's the reality.
 
+You sure did make time. Lots of it. But none for me.
+
 That was your choice. Not mine."
 
 ---
