@@ -1,6 +1,6 @@
 #
 
-"THink I don't see. You already admitted it. If it wasn't one that admitted it, the other did. Dumb ass bitches."
+"THink I didn't or don't see. You already admitted to all. If it wasn't one that admitted it, the other did. Dumb ass bitches."
 
 "Whenever they're around it's everyday, every minute.
 
