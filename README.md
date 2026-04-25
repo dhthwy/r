@@ -1,5 +1,11 @@
 #
 
+"Dat was 3 strikes from your 'don't worry. it's good!'
+
+But you lied. As usual.
+
+And then continued to do so, even as it caused me more harm. Just like a jerk. Whatta asshole."
+
 https://www.youtube.com/watch?v=-51KCTiE2ZY
 
 https://www.youtube.com/shorts/kWBZXXYYlUk 
