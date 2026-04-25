@@ -1,14 +1,18 @@
 #
 
-"THink I didn't or don't see. You already admitted to all. If it wasn't one that admitted it, the other did. Dumb ass bitches."
+https://www.youtube.com/shorts/_GUsYU2DcJM
 
-"Whenever they're around it's everyday, every minute.
+"I'd say taken a lesson from jobs, but yeah, I've only been sayin it for years."
 
-And for me you say 'Fuck him. He can wait. Maybe many later I'll make time. I don't give a fuck how much they waste.'
+"Bad experience was never helpful. Do it for years whilst ignoring the very people screaming 'this doesn't work', it becomes tatted."
 
-"See the difference jerk? No you don't. You think that's ok. AAnd that's what makes you an asshole!"
+"Near or far, doesn't matter how much you beg and scream. Just get kicked to the curb all the same."
 
-"No respect for nothin. Just like a fuckin asshole."
+"Show people you don't give a damn for them. Don't expect people to give a damn for you."
+
+"If only apple said 'Hey, we don't give no fucks about your experience. Cause like our tech is like the best tech. You gonna buy... cuz!'"
+
+"But if jobs said that, he would've remained broke."
 
 ---
 
