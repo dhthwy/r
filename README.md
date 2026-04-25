@@ -1,6 +1,6 @@
 #
 
-"Of course the only people you give great experiences to are the ones you care for. If you were completely incapable of it, then it could be forgiven, but you certainly are, you simply chose to provide great, and to provide trash. And you stayed that course for years. Don't need anything from me, that's for sure! Whatta asshole."
+"Of course the only people you give great experiences to are the ones you care for. If you were completely incapable of it, then it could be forgiven, but you certainly are, you simply chose to provide great, and to provide trash for me. And you stayed that course for years. Don't need anything from me, that's for sure! Whatta asshole."
 
 https://www.youtube.com/shorts/_GUsYU2DcJM
 
