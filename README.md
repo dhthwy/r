@@ -1,5 +1,15 @@
 #
 
+"Whenever they're around it's everyday, every minute.
+
+And for me you say 'Fuck him. He can wait. Maybe many later I'll make time. I don't give a fuck how much they waste.'
+
+"See the difference jerk? No you don't. You think that's ok. AAnd that's what makes you an asshole!"
+
+"No respect for nothin. Just like a fuckin asshole."
+
+---
+
 "Dat was 3 strikes from your 'don't worry. it's good!'
 
 But you lied. As usual.
