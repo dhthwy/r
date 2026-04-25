@@ -1,5 +1,7 @@
 #
 
+"THink I don't see. You already admitted it. If it wasn't one that admitted it, the other did. Dumb ass bitches."
+
 "Whenever they're around it's everyday, every minute.
 
 And for me you say 'Fuck him. He can wait. Maybe many later I'll make time. I don't give a fuck how much they waste.'
