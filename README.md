@@ -1,6 +1,10 @@
 #
 
-"If you’re not part of the solution you’re part of the problem" - "Simple. They chose problems and excuses. So then it was none of their fucking business, and therefore none of their shit should've had any affect on me. Just fuck off bitch. You don't even know what social justice means. Edumucated people pretending to be smart."
+"If you’re not part of the solution you’re part of the problem" - "Simple. They chose problems and excuses. So then it was none of their fucking business, and therefore none of their shit should've had any affect on me. Just fuck off bitch. You don't even know what social justice means. Edumucated people pretending to be smart.
+
+Brush off dat experience. Make up dem excues. Live in your own stupid ass pretend world.
+
+Bidness thru obscurity is no sustainable bidness at all. Remember that when you flunk, bitch."
 
 https://www.youtube.com/shorts/oxet6arH2h8
 
