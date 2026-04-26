@@ -6,6 +6,10 @@ https://www.youtube.com/shorts/oxet6arH2h8
 
 You killed my resolve ever since you became a dirty, lyin snitch. You've done nothing BUT injustice since, and now you have weasel helping you do it. Fuck you, asshole."
 
+"Ever come crying to me, I'll just smile in your face, turn my back, and walk away. :D
+
+What goes around comes around, bitch."
+
 ---
 
 "Of course the only people you give great experiences to are the ones you care for. If you were completely incapable of it, then it could be forgiven, but you certainly are, you simply chose to provide great, and to provide trash for me. And you stayed that course for years. Don't need anything from me, that's for sure! Whatta asshole."
