@@ -1,5 +1,25 @@
 #
 
+https://www.youtube.com/shorts/oxet6arH2h8
+
+https://www.inc.com/huffington-post/steve-jobs-became-a-better-boss-when-he-curbed-his-narcissism.html
+
+"
+I get it.
+
+You think: 'Jobs is my RM, so I'm gonna be an asshole like him!'
+
+But you aint Jobs. And the highly successful RM Jobs came after he grew some fuckin humility.
+
+Conceited assholes are a like like children- think they know everything.
+
+It's the Dunning-Kruger effect in full swing.
+
+Fuck that bitch. That wasn't business. Those attacks were very personal and the epitome of injustice from that bitch.
+
+Fuck that bitch for letting some conceited cock continue it.
+"
+
 "If you’re not part of the solution you’re part of the problem" - "Simple. They chose problems and excuses. So then it was none of their fucking business, and therefore none of their shit should've had any affect on me. Just fuck off bitch. You don't even know what social justice means. Edumucated people pretending to be smart.
 
 ```
