@@ -2,6 +2,10 @@
 
 "If you’re not part of the solution you’re part of the problem" - "Simple. They chose problems and excuses. So then it was none of their fucking business, and therefore none of their shit should've had any affect on me. Just fuck off bitch. You don't even know what social justice means. Edumucated people pretending to be smart.
 
+```
+This is provocative and powerful because it cuts straight to the heart. It shows that if we're not part of the situation then it's probably none of our business, and directs us to face and address our own role in any given problem if we hope of making change happen. I love how this concept points to a need for humility, born out of self-forgiveness, as a necessary precursor to any attempt to advocate for change. If you can accept that we are complicit and still choose to make a change, you gain freedom and agility and can become a model for those that you want to include in the transformation.
+```
+
 Brush off dat experience. Make up dem excues. Live in your own stupid ass pretend world.
 
 Bidness thru obscurity is no sustainable bidness at all. Remember that when you flunk, bitch."
