@@ -1,5 +1,13 @@
 #
 
+https://www.youtube.com/shorts/oxet6arH2h8
+
+"Weasels who keep in the dark, and who make excuses over little things are certainly not a RM. Especially when they ignored proposed solutions, with, again, lame ass excuses. Not a RM.
+
+You killed my resolve ever since you became a dirty, lyin snitch."
+
+---
+
 "Of course the only people you give great experiences to are the ones you care for. If you were completely incapable of it, then it could be forgiven, but you certainly are, you simply chose to provide great, and to provide trash for me. And you stayed that course for years. Don't need anything from me, that's for sure! Whatta asshole."
 
 https://www.youtube.com/shorts/_GUsYU2DcJM
