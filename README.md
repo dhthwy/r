@@ -8,6 +8,10 @@ You killed my resolve ever since you became a dirty, lyin snitch. You've done no
 
 "Ever come crying to me, I'll just smile in your face, turn my back, and walk away. :D  Just.Like.You.Did.Me.Jerk.
 
+Just.Like.You.Did.Me.Jerk.
+
+Just.Like.You.Did.Me.Jerk.
+
 What goes around comes around, bitch."
 
 ---
