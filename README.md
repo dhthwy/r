@@ -6,7 +6,7 @@
 This is provocative and powerful because it cuts straight to the heart. It shows that if we're not part of the situation then it's probably none of our business, and directs us to face and address our own role in any given problem if we hope of making change happen. I love how this concept points to a need for humility, born out of self-forgiveness, as a necessary precursor to any attempt to advocate for change. If you can accept that we are complicit and still choose to make a change, you gain freedom and agility and can become a model for those that you want to include in the transformation.
 ```
 
-RM my ass. LOL. I'm old enough to have had the pleasure of knowing many conceited pricks who thought they were the shit. How do you tell between them and the real deal? HUMILITY. THEY ARE ALSO HUMBLE. Dumb bitch.
+RM my ass. LOL. I'm old enough to have had the pleasure of knowing many conceited pricks who thought they were the shit. How do you tell between them and the real deal? HUMILITY. HUMBLE. Dumb bitch.
 
 Brush off dat experience. Make up dem excues. Live in your own stupid ass pretend world.
 
