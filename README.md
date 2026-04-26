@@ -6,7 +6,7 @@ https://www.youtube.com/shorts/oxet6arH2h8
 
 You killed my resolve ever since you became a dirty, lyin snitch. You've done nothing BUT injustice since, and now you have weasel helping you do it. Fuck you, asshole. Fall for your lies again. Hell fuckin nah."
 
-"Ever come crying to me, I'll just smile in your face, turn my back, and walk away. :D
+"Ever come crying to me, I'll just smile in your face, turn my back, and walk away. :D  Just.Like.You.Did.Me.Jerk.
 
 What goes around comes around, bitch."
 
