@@ -4,7 +4,7 @@ https://www.youtube.com/shorts/oxet6arH2h8
 
 "Weasels who keep in the dark, and who make excuses over little things are certainly not a RM. Especially when they ignored proposed solutions, with, again, lame ass excuses. Not a RM.
 
-You killed my resolve ever since you became a dirty, lyin snitch."
+You killed my resolve ever since you became a dirty, lyin snitch. You've done nothing BUT injustice since, and now you have weasel helping you do it. Fuck you, asshole."
 
 ---
 
