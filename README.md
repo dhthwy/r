@@ -1,5 +1,14 @@
 #
 
+<img width="788" height="461" alt="Screenshot_20260426_143144" src="https://github.com/user-attachments/assets/9fd677d9-e752-426e-be58-f78b5cd40ab9" />
+
+<img width="791" height="288" alt="Screenshot_20260426_142957" src="https://github.com/user-attachments/assets/912579c3-9684-466b-adf2-ed2e7ea2ca6d" />
+
+<img width="860" height="349" alt="Screenshot_20260426_142616" src="https://github.com/user-attachments/assets/222684a2-186f-4e72-8868-eabdc54da1bc" />
+
+<img width="820" height="605" alt="Screenshot_20260426_133031" src="https://github.com/user-attachments/assets/52598ebb-a74b-4201-ada4-abbfe69852e9" />
+
+
 https://www.youtube.com/shorts/oxet6arH2h8
 
 https://www.inc.com/huffington-post/steve-jobs-became-a-better-boss-when-he-curbed-his-narcissism.html
