@@ -1,5 +1,23 @@
 #
 
+https://www.nytimes.com/2026/04/27/business/economy/iran-war-global-growth.html
+
+https://dnyuz.com/2026/04/27/the-u-s-started-the-war-the-rest-of-the-world-is-feeling-the-effects/
+
+```
+Energy inventories are running out, and some shipments have stopped. “The water’s on the boil, the frog is in the water and the temperature’s rising,” Mr. Rajan said. “And now, increasingly, you’re going to see industry shut down.”
+
+Steel plants in India and automakers in Japan have cut production because of higher energy prices and concerns about reduced demand. Toy factories in China, already suffering from U.S. tariffs, are contending with discontent from thousands of workers angry about losing their jobs.
+
+One morning last week, in Firozabad, a city in northern India, workers were idly milling at an open-air labor market. “Because of the war, work has dwindled,” said Muhammad Waseem, a plasterer. He was haggling with a potential employer who wanted to pay him 500 rupees ($5.30) for a construction job, significantly less than what he usually earns.
+```
+
+"Maybe should've that about that before bombing iran long time"
+
+https://www.youtube.com/watch?v=VcoFQ5rDWUg
+
+---
+
 <img width="788" height="461" alt="Screenshot_20260426_143144" src="https://github.com/user-attachments/assets/9fd677d9-e752-426e-be58-f78b5cd40ab9" />
 
 <img width="791" height="288" alt="Screenshot_20260426_142957" src="https://github.com/user-attachments/assets/912579c3-9684-466b-adf2-ed2e7ea2ca6d" />
