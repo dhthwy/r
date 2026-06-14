@@ -1,5 +1,14 @@
 # r
 
+"It wasn't YOUR CHOICES in general.
+
+It was your choice to leave me like this, with false hopes and betrayals, knowing I needed a friend, for years.
+
+Can't live amongst wolves and enemies, eating away at your flesh, all on your own for so long.
+
+Everyone needs someone. Just let it rot. No way to stop it now. Too Far Gone.
+"
+
 "Nothing like a 'friend' to lead you to the wolf's den.
 
 I said I am impotent. Meant it. I'll go out with a fucking bang though. Fuck the world."
