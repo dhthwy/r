@@ -10,6 +10,8 @@ And it's so fast nothing can be known.
 
 I can't further insult my well being with a scrap.
 
+Maybe in the beginning it would've been what I needed... but not after everything.
+
 If I can come up with the strength. I'll find someone who can care for me the way any human being deserves.
 "
 
