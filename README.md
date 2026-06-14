@@ -1,5 +1,16 @@
 # r
 
+"It was time to get-to-know. Not sleep-time.
+
+You certainly could as you've shown, but you simply refused that for me.
+
+You don't get it though.
+
+Because you only listen to your wolves, and betray my intent.
+
+It's just another betrayal. You destroyed my self.
+"
+
 "I couldn't do the whole rush thing.
 
 Ya it'll be so fast, like one super blur!
