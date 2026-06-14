@@ -1,5 +1,9 @@
 # r
 
+"Nothing like a 'friend' to lead you to the wolf's den.
+
+I said I am impotent. Meant it. I'll go out with a fucking bang though. Fuck the world."
+
 "Probably not the greatest idea to mess with someone who has nothing to live for.
 
 I'm already destroyed. Too far gone to do anything, anyway.
