@@ -1,5 +1,20 @@
 # r
 
+"I couldn't do the whole rush thing.
+
+Ya it'll be so fast, like one super blur!
+
+I don't have the strength, for one. I spent all my strength.
+
+And it's so fast nothing can be known.
+
+I can't further insult my well being with a scrap.
+
+If I can come up with the strength. I'll find someone who can care for me the way any human being deserves.
+"
+
+---
+
 "It wasn't YOUR CHOICES in general.
 
 It was your choice to leave me like this, with false hopes and betrayals, knowing I needed a friend, for years.
