@@ -1,5 +1,18 @@
 # r
 
+"
+Scorn scraps.
+
+Scorn double standards.
+
+Scorn wins... 'If you're really lucky, after spending 20k, you get a 1% chance for the lowest as possible! We laughs at you with sprinkes on top!'
+
+Scorn approvals.
+
+Wait.. approval block games are so much fun!
+"
+
+---
 
 <img width="547" height="523" alt="Screenshot_20260614_214045" src="https://github.com/user-attachments/assets/63d065fe-5338-4cf4-86cc-2cd3a84c88f0" />
 
