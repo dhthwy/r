@@ -1,5 +1,20 @@
 # r
 
+"Can't talk to you. Can't plan anything. 
+
+Of course, you've always done that. But you did it again. And you took it much further. You essentially 10x'd the alienation.
+
+All the little things that could've helped grow, and learn... smashed... cause rules are rules.
+
+The little thing could never even happen because the underpinnings were smashed!
+
+Smashing is a fun game for you.
+
+But hey. Excuses only when it comes to me.
+
+It's how it always was. I just finally realized, after many years, that I let someone ruin me for nothing. 
+"
+
 ```
 “Nobody likes being alone that much. I don't go out of my way to make friends, that's all. It just leads to disappointment. ”
 ― Haruki Murakami, Norwegian Wood
