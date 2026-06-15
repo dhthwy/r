@@ -29,7 +29,7 @@ Exactly what I needed.
 
 The only company I've ever had in the last several years is old people who can't cook or clean or even have a conversation with.
 
-Actually that goes back over 20+ years... because I haven't found anyone...
+Actually that goes back over 20+ years... because I haven't found anyone...not in RL.
 
 Everytime I try I run into FUCKING PEOPLE LIKE YOU and end up just like THIS. THANK YOU SO MUCH!
 
