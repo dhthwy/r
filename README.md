@@ -1,5 +1,38 @@
 # r
 
+"Very interesting double standards.
+
+For them. Hey let's grow and get to know long time! 
+
+For me. Business first. You get one little thing, if you're lucky. Rules are rules, cause they say so.
+
+Didn't have some dick intefering with approvals. You were allowed to grow.
+
+Nah, you were just using me as a net.
+
+Fucked up. The least you could've been is nice.
+
+Use. Scorn. 10x Doubhebaggery.
+
+Can't make someone give a damn for you.
+
+So I know how you feel about me... you don't give a damn. COuld never have.
+
+So inspiring. So motivational.
+
+Exactly what I needed.
+
+The only company I've ever had in the last several years is old people who can't cook or clean or even have a conversation with.
+
+Actually that goes back over 20+ years... because I haven't found anyone...
+
+Everytime I try I run into FUCKING PEOPLE LIKE YOU and end up just like THIS. THANK YOU SO MUCH!
+
+SEE WHY IM PISSED YET? NO? PROBABLY NO. 
+"
+
+---
+
 "I wasn't being greedy before either. On the other hand, I was clearly being snubbed and lessened on purpose.
 
 That's why I said I'm not doing that. Prearranging a drop, on purpose, when dehydrated for so long is fucked up. By prearranging it, you murdered any opportunity for more. But that must've been the point - to ensure there could only ever be a drop.
