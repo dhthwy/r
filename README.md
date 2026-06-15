@@ -1,5 +1,19 @@
 # r
 
+
+<img width="547" height="523" alt="Screenshot_20260614_214045" src="https://github.com/user-attachments/assets/63d065fe-5338-4cf4-86cc-2cd3a84c88f0" />
+
+"10x'd that shit too. Set ppl up just to scorn em... as a team!
+
+Hey, you really made me feel like a woman.
+
+HAHAHA.
+
+You must be lovin it! Scorn wars! w00t! yip! Horaaah!
+"
+
+---
+
 "It was time to get-to-know. Not sleep-time.
 
 You certainly could as you've shown, but you simply refused that for me.
