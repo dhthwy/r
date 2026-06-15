@@ -14,7 +14,7 @@ I'm leaving no child behind. They all get cared for.
 
 <img width="225" height="585" alt="Screenshot_20260615_122003" src="https://github.com/user-attachments/assets/9e29e644-0a81-489c-a797-d5586edb1faa" />
 
-Now that little guy is going to sit in some water for a few days so it can build some strong roots before going to battle in the wild.
+Now that little guy is going to sit in some water for a cpl of days so it can build some strong roots before going to battle in the wild.
 "
 
 ---
