@@ -1,5 +1,10 @@
 # r
 
+```
+“Nobody likes being alone that much. I don't go out of my way to make friends, that's all. It just leads to disappointment. ”
+― Haruki Murakami, Norwegian Wood
+```
+
 "Very interesting double standards.
 
 For them. Hey let's grow and get to know long time! 
