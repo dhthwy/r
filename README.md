@@ -1,5 +1,27 @@
 # r
 
+"I wasn't being greedy before either. On the other hand, I was clearly being snubbed and lessened on purpose.
+
+That's why I said I'm not doing that. Prearranging a drop, on purpose, when dehydrated for so long is fucked up. By prearranging it, you murdered any opportunity for more. But that must've been the point - to ensure there could only ever be a drop.
+
+It isn't right when there was so much to cover and learn.
+
+I had so few viable, and no one else has that problem.
+
+But you simply didn't care.
+
+Guess it's too late now. Can't fix the damage of shitty time.
+
+Can't fix the damage from favoritism, and assuming ill intent because someone else said so.
+
+You made the history 10x worse... now that I know for certain I meant nothing to you at all in any fashion.
+
+Because if you did. You wouldn't have treated me with such scorn.
+
+All those years.. might as well have been nothing at all. That's precisely how you did me.
+"
+
+---
 
 "I'm not that greedy. But it's messed up when your future is predetermined to be the lowest of the low.
 
