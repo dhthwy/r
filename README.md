@@ -1,78 +1,21 @@
 # r
 
-"Can't talk to you. Can't plan anything. 
+"What I got:
 
-Of course, you've always done that. But you did it again. And you took it much further. You essentially 10x'd the alienation.
+They: 'I decide when, where, and how. If and when I am done then maybe.. MAYBE.. if she has nothing better to do you might get lucky and cross.'
 
-All the little things that could've helped grow, and learn... smashed... cause rules are rules.
+They: 'Yeah! That's right. We do what we want. You have no voice here. You aren't talking to ANYONE. You just a maybe leftover. You going to risk lots of time and money. Believe me, you'll be spending a LOT of that! See we don't care about money. Throw a stack of 100s down the toilet. That's our TP!'
 
-The little thing could never even happen because the underpinnings were smashed!
+"Basically. That's it.
 
-Smashing is a fun game for you.
+Last time I tried to fight for space I got scorned. Then scorned again.
 
-But hey. Excuses only when it comes to me.
-
-It's how it always was. I just finally realized, after many years, that I let someone ruin me for nothing. 
-"
+Clap Clap"
 
 ```
 “Nobody likes being alone that much. I don't go out of my way to make friends, that's all. It just leads to disappointment. ”
 ― Haruki Murakami, Norwegian Wood
 ```
-
-"Very interesting double standards.
-
-For them. Hey let's grow and get to know long time! 
-
-For me. Business first. You get one little thing, if you're lucky. Rules are rules, cause they say so.
-
-Didn't have some dick intefering with approvals. You were allowed to grow.
-
-Nah, you were just using me as a net.
-
-Fucked up. The least you could've been is nice.
-
-Use. Scorn. 10x Doubhebaggery.
-
-Can't make someone give a damn for you.
-
-So I know how you feel about me... you don't give a damn. COuld never have.
-
-So inspiring. So motivational.
-
-Exactly what I needed.
-
-The only company I've ever had in the last several years is old people who can't cook or clean or even have a conversation with.
-
-Actually that goes back over 20+ years... because I haven't found anyone...not in RL.
-
-Everytime I try I run into FUCKING PEOPLE LIKE YOU and end up just like THIS. THANK YOU SO MUCH!
-
-SEE WHY IM PISSED YET? NO? PROBABLY NO. 
-"
-
----
-
-"I wasn't being greedy before either. On the other hand, I was clearly being snubbed and lessened on purpose.
-
-That's why I said I'm not doing that. Prearranging a drop, on purpose, when dehydrated for so long is fucked up. By prearranging it, you murdered any opportunity for more. But that must've been the point - to ensure there could only ever be a drop.
-
-It isn't right when there was so much to cover and learn.
-
-I had so few viable, and no one else has that problem.
-
-But you simply didn't care.
-
-Guess it's too late now. Can't fix the damage of shitty time.
-
-Can't fix the damage from favoritism, and assuming ill intent because someone else said so.
-
-You made the history 10x worse... now that I know for certain I meant nothing to you at all in any fashion.
-
-Because if you did. You wouldn't have treated me with such scorn.
-
-All those years.. might as well have been nothing at all. That's precisely how you did me.
-"
 
 ---
 
