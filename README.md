@@ -1,5 +1,16 @@
 # r
 
+"It's alright. I'm a hobo now. I'll be dead before I reach the streets though.
+
+I was sort of happy, for a time. I thought maybe I wasn't going to be alone anymore.
+
+I had one simple request. Just respect that little bit of time I needed first.
+
+But you weren't for real.
+
+I was only to be used and discarded.
+"
+
 "What I got:
 
 They: 'I decide when, where, and how. If and when I am done then maybe.. MAYBE.. if she has nothing better to do you might get lucky and cross.'
