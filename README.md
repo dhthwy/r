@@ -2,7 +2,7 @@
 
 "Bamboo stakes really suck.
 
-My design worked well - secured it by anchoring it with a line in a triangle such that it stays anchored from every direction.
+My design should've worked well - secured it by anchoring it with a line in a triangle such that it stays anchored from every direction.
 
 But a little wind gust snapped it right at the soil line.
 
