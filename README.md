@@ -2,7 +2,7 @@
 
 "Tropical storm winds tomorrow. Nice.
 
-My best pepper plant's been banging em out too. Got 5 peppers in 30 days, with several more on the way.
+My best pepper plant's been banging em out too. Got 5 peppers 30 days after planting, with several more on the way.
 
 But it probably get RIP.
 
