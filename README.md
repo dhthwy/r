@@ -33,6 +33,18 @@ Independent gig jobs don't pay a living wage. Hardly anything that I can fucking
 Probably don't see because I'm isolated. But I have no idea how to not be.
 
 Every time I try to not be. The world isolates me again.
+
+Now I'm old. Have no one.
+
+When I get into a jam. No one is there to help me.
+
+When I need advice. I have no one to consult with.
+
+No one to brainstorm with. Nothing.
+
+No one cares about the old, isolated one.
+
+When I was young, it was different. Being old and alone is entirely different.
 "
 
 ---
