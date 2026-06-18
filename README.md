@@ -1,5 +1,42 @@
 # r
 
+"I believe it's too late for me.
+
+I no longer have the time to get something going.
+
+Too many things that could pay a living wage that I can't even do.
+
+I can't think of anything I can actually do that pays a living wage.
+
+I almost did the accelerated degree thing in '20 or before... But it would've been done in complete isolation.
+
+And I knew a tech degree wasn't even worth it. 
+
+Even if I managed to pass in isolation. I knew it was a terrible field with no job security.
+
+It was the isolation that was killing me.
+
+I had no idea what else there was. Probably because... of ISOLATION.
+
+Just stay on the PC since your teens. Work day jobs in isolation. Everything was isolated.
+
+I don't even know how to not be anymore.
+
+Nor do I fit at any job that requires actual contact with people because I've been isolated too long.
+
+Not hard at all to tell. Everyone loves to piss on the isolated one. Like a cancer. They go for the kill.
+
+Most jobs requiire that contact.
+
+Independent gig jobs don't pay a living wage. Hardly anything that I can fucking see pays a living wage.
+
+Probably don't see because I'm isolated. But I have no idea how to not be.
+
+Every time I try to not be. The world isolates me again.
+"
+
+---
+
 "Tropical storm winds tomorrow. Nice.
 
 My best pepper plant's been banging em out too. Got 5 peppers 30 days after planting, with several more on the way.
