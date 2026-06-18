@@ -1,5 +1,15 @@
 # r
 
+"Tropical storm winds tomorrow. Nice.
+
+My best pepper plant's been banging em out too. Got 5 peppers in 30 days, with several more on the way.
+
+But it probably get RIP.
+
+Gardens need walls."
+
+---
+
 "Bamboo stakes really suck.
 
 My design should've worked well - secured it by anchoring it with a line in a triangle such that it stays anchored from every direction.
