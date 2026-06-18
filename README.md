@@ -1,5 +1,28 @@
 # r
 
+"Bamboo stakes really suck.
+
+My design worked well - secured it by anchoring it with a line in a triangle.
+
+But a little wind gust snapped it right at the soil line.
+
+What no one tells you is that bamboo sucks as a garden stake.
+
+It rots in the ground then snaps in a few weeks.
+
+I should've known that, but I figured it would last me the season.
+
+I asked AI if my setup was sound to handle wind gusts up to 40mph, and of course, it told me it was good.
+
+Then when I told it the bamboo snapped it replied 'oh, sorry I didn't inform you that bamboo rots quick in wet soil.'
+
+Imagine having a surgeon consult with an AI instead of a senior expert. 'Oh. I didn't tell you everything. Sorry your patient died.'
+
+Health care is safe from AI.
+"
+
+---
+
 "It's alright. I'm a hobo now. I'll be dead before I reach the streets though.
 
 I was sort of happy, for a time. I thought maybe I wasn't going to be alone anymore.
