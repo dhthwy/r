@@ -1,5 +1,15 @@
 # r
 
+``` 8:06 PM	90 °F	72 °F	55 %	SW	47 mph	58 mph	29.64 in	0.0 in	Thunder / Windy ```
+
+"Yep, my grown plants in the elevated tote survived 58 mph wind.
+
+I was up at 3am last night tending to everything. That's the best time.
+
+Happy plants. They sure do love rain."
+
+---
+
 "Welp, they survived the gusty wind all day.
 
 The real test came when a severe storm rolled in.
