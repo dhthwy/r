@@ -1,5 +1,24 @@
 # r
 
+"Welp, they survived the gusty wind all day.
+
+The real test came when a severe storm rolled in.
+
+Debris everywhere. Downed tree branches.
+
+But my tethering efforts prevailed.
+
+The only casualty was a single bush snap bean plant, but it will probably make it after i gave it a splint.
+
+I didn't tether those since they're built to handle it.
+
+Those bush beans are neat. They're tiny fast growing little plants with leaves that follow the sun like solar panels.
+
+The wind whips them all over the place but they spring back up.. usually.
+"
+
+---
+
 "I believe it's too late for me.
 
 I no longer have the time to get something going.
