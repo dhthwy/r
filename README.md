@@ -1,5 +1,20 @@
 # r
 
+"I got 4 bitches in the starter pots.
+
+I want about 24 strawberry plants for my patch.
+
+One is recovering in the ICU.
+
+I think it's going to make it.
+
+<img width="480" height="640" alt="IMG_0102" src="https://github.com/user-attachments/assets/31716e15-4ee8-4ce3-9e14-b5114e7de657" />
+
+<img width="480" height="640" alt="IMG_0117" src="https://github.com/user-attachments/assets/b7cf7b21-a90c-4e04-8c8a-ec879ef782ac" />
+
+
+"
+
 ``` 8:06 PM	90 °F	72 °F	55 %	SW	47 mph	58 mph	29.64 in	0.0 in	Thunder / Windy ```
 
 "Yep, my grown plants in the elevated tote survived 58 mph wind.
