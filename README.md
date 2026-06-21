@@ -1,5 +1,12 @@
 # r
 
+"It's fine.
+
+Continue to do what you've been doing for over 2 years.
+"
+
+---
+
 "I got 4 bitches in the starter pots.
 
 I want about 24 strawberry plants for my patch.
