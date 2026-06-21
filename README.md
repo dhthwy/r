@@ -7,6 +7,22 @@ Continue to do what you've been doing for over 2 years.
 No need worry about ethic complaints or other drama.
 
 You already have what you chose. Nothing else matters.
+
+The one you like is the one you run to. Not the one you left to drown while they scream out to you for your help.
+
+The history before that made it far worse.
+
+Plus you added 'ethics' to the mix, further souring the milk. Don't forget who did who wrong first.
+
+Once you cut someone off like that. That's it. There is no going back.
+
+It's mind boggling the asshole you have become.
+
+Can't go back from how you treated me in the past, and how you still choose to treat me currently.
+
+Ya fucking asshole.
+
+Your choices preclude any future growth.
 "
 
 ---
