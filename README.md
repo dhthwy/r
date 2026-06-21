@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=nC8DIWFBwkI
+
 "It's fine.
 
 Continue to do what you've been doing for over 2 years.
