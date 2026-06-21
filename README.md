@@ -3,6 +3,10 @@
 "It's fine.
 
 Continue to do what you've been doing for over 2 years.
+
+No need worry about ethic complaints or other drama.
+
+You already have what you chose. Nothing else matters.
 "
 
 ---
