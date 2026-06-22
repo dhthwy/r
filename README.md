@@ -7,7 +7,7 @@
 
 <img width="480" height="640" alt="IMG_0113" src="https://github.com/user-attachments/assets/36c7941c-30fc-4cf8-a818-dcc3952b42be" />
 
-"Poor little girl. She went to that from
+"Poor little girl. She went from that to
 
 <img width="480" height="640" alt="IMG_0124" src="https://github.com/user-attachments/assets/b430bcaa-7fdf-45b5-a8ee-2516a571c4c9" />
 
