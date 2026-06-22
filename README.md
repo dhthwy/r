@@ -1,5 +1,11 @@
 # r
 
+https://youtu.be/WVF3efTxiqw?is=WeH2HFKx3iFX9SOf
+
+"trump the man. vance the woman
+
+vs zelensky, the little one, the only one not full of bs. Hey.. wait a minute.. you guys ARE trump and vance!"
+
 <img width="480" height="640" alt="IMG_0126" src="https://github.com/user-attachments/assets/a840c591-f242-4958-b4e6-340eeae73949" />
 
 "All of my bitches talk to me."
