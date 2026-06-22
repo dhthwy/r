@@ -1,5 +1,26 @@
 # r
 
+<img width="480" height="640" alt="IMG_0126" src="https://github.com/user-attachments/assets/a840c591-f242-4958-b4e6-340eeae73949" />
+
+"All of my bitches talk to me."
+
+
+<img width="480" height="640" alt="IMG_0113" src="https://github.com/user-attachments/assets/36c7941c-30fc-4cf8-a818-dcc3952b42be" />
+
+"Poor little girl. She went to that from
+
+<img width="480" height="640" alt="IMG_0124" src="https://github.com/user-attachments/assets/b430bcaa-7fdf-45b5-a8ee-2516a571c4c9" />
+
+
+I had to give her an IV. She started eating herself to stay alive.
+
+She got her roots baked by the sun. Then sliced up a bit.
+
+Standing tall now, after spending some time in the ICU."
+
+
+---
+
 https://www.youtube.com/watch?v=nC8DIWFBwkI
 
 "It's fine.
