@@ -1,5 +1,26 @@
 # r
 
+"Gardening is a lot of work.
+
+I don't see how average people have the time for this.
+
+These containers need water twice a day. Even wrapped in shade cloth. Baked in hours.
+
+Whoever recommends containers for plants in 100 degree temps need coaching!
+
+I wonder how many plants AI has killed. That stupid thing is always giving terrible advice.
+
+Can't wait to get this irrigation system setup.
+
+The whole 'learn to grow your own food' sustainability movement is a bit silly too.
+
+It's expensive and requires a lot of space to feed even a single person.
+
+Probably run by rich people for grant money.
+"
+
+---
+
 https://youtu.be/WVF3efTxiqw?is=WeH2HFKx3iFX9SOf
 
 "trump the man. vance the woman
