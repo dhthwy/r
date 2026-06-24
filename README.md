@@ -1,5 +1,25 @@
 # r
 
+
+<img width="480" height="640" alt="IMG_0147" src="https://github.com/user-attachments/assets/e60b0678-0c19-47b4-9bb5-8b226595820a" />
+
+"My dumb ass forgot to change the tether to a figure 8.
+
+So a wind came and bent it right over, pinching it.
+
+You can see the skinny part of the stem where the strap kept it thin.
+
+Well, if I was a master, they would've already been in a florida weave so that this doesn't happen.
+
+So I hang out at night with the frogs, the wolf spiders, and all the strings of fungi permeating leaf mold that light up with my UV light.
+
+Apparently the plants love that type of fungus. The leaf mold is in the stage just before it breaks down into dark, rich soil. The soil underneath gets leachate whenever they get water. Free fertilizer.
+"
+
+
+---
+
+
 "Gardening is a lot of work.
 
 I don't see how average people have the time for this.
