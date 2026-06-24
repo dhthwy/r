@@ -1,7 +1,7 @@
 # r
 
+<img width="480" height="640" alt="IMG_0146" src="https://github.com/user-attachments/assets/7eb1ae28-aa8b-4f2e-85da-759a8fd5dca7" />
 
-<img width="480" height="640" alt="IMG_0147" src="https://github.com/user-attachments/assets/e60b0678-0c19-47b4-9bb5-8b226595820a" />
 
 "My dumb ass forgot to change the tether to a figure 8.
 
