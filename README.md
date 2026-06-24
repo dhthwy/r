@@ -1,5 +1,24 @@
 # r
 
+
+<img width="480" height="640" alt="IMG_0149" src="https://github.com/user-attachments/assets/352470ab-805a-47e7-9f45-42658d732e48" />
+
+
+<img width="640" height="480" alt="IMG_0150" src="https://github.com/user-attachments/assets/0d8de842-956d-4087-af62-11ac8f3c4423" />
+
+"Healthy eggplant vs sick one.
+
+The sick one grew a massive root system to the top of the soil right under the leaf mold, but I said no, you're not rooting in that, that's mulch.
+
+Then it dropped a leaf.
+
+themz flea beatles at the nursery were suttin else.
+
+The sick one was probably root bound already since it grew woody at the base at the nursery. They all looked bad. That's why I got two. Always have at least two.
+"
+
+---
+
 <img width="480" height="640" alt="IMG_0146" src="https://github.com/user-attachments/assets/7eb1ae28-aa8b-4f2e-85da-759a8fd5dca7" />
 
 
