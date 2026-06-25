@@ -5,7 +5,7 @@ You did what you _WANTED_ to do. Fucking me up. AND DID IT OVER AND OVER AGAIN.
 
 If you went out your way for me. I would NEVER do those things to you. But you're a fucking asshole.
 
-Fuck you. Fuck them. Fuck you again.
+Fuck you. Fuck them. Fuck you again. Fuck your excuses you apply only to me.
 
 ---
 
