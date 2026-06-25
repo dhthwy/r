@@ -1,5 +1,15 @@
 "
 
+Aint never had my back. Shoot me in the back, sure. You did that tons of times. But actually have my back? Nope. Proved that in '25. Proved the past prior to that was all purposefully done under free will.
+
+It was a great understanding. Super to know all those years you were actually a snake.
+
+It all made sense. I hope you drown. If anyone deserves it. You do!
+
+Fucking people up for giggles. You and your team.
+
+---
+ 
 I'll always remember what you did do me when I tried to reach out to you.
 
 And how you had absolutely no excuses for anyone else.
