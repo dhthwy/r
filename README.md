@@ -1,5 +1,18 @@
 "
 
+I'll always remember what you did do me when I tried to reach out to you.
+
+And how you had absolutely no excuses for anyone else.
+
+And how you did no one else any harm for trying to reach out.
+
+Cause you're a fuckin jerk. Have to SHIT on someone to make yourself feel better. Cause you're a fuckin jerk.
+
+TAKEDATAKEDATAKEDATAKEDATAKEDATAKEDA
+
+Loves to shove your dick into things. Shove it up your ass, motherfucker. 
+
+
 'I just wanna fuck you up.
 
 I wanna fuck you up so bad.
