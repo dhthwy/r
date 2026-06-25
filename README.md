@@ -21,4 +21,8 @@ The only lesson you taught me is to not waste my time with people who don't appr
 You don't give them lame excuses. You don't cut them off for me. You cut me off for them. Every. Single. Fucking. Time. Coordinated fucking me over. And at my expense.
 
 Fuck you asshole.
+
+You gave me a valuable lesson. Learned much too late. 
+
+Never trust some stupid fucking bitch when they are giving you lame ass fucking excuses. If they REALLY have any potential to appreciate you. They would never do that! Great job there in showing me the difference between those you appreciate and those you do not. Years and large sums down the drain to learn that. Because you're a fucking jerk.
 "
