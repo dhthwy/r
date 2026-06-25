@@ -1,4 +1,7 @@
-"No. Because you don't talk to me properly.
+"
+'25 was the real telling. Showed your true self and your true intent there before and during summer. Fuck your life.
+
+No. Because you don't talk to me properly.
 
 You talk to them properly. And spend time with them properly.
 
