@@ -1,4 +1,14 @@
 "
+HUGE difference between what you are compelled to do and what you want to do.
+
+You did what you _WANTED_ to do. Fucking me up. AND DID IT OVER AND OVER AGAIN.
+
+If you went out your way for me. I would NEVER do those things to you. But you're a fucking asshole.
+
+Fuck you. Fuck them. Fuck you again.
+
+---
+
 '25 was the real telling. Showed your true self and your true intent there before and during summer. Fuck your life.
 
 No. Because you don't talk to me properly.
