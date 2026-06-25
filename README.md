@@ -13,4 +13,12 @@ So no.
 Whatta asshole.
 
 Not wasting another penny.
+
+Which obviously pales in comparison to the wasted time in misery you did give me.
+
+The only lesson you taught me is to not waste my time with people who don't appreciate you. No matter what lame ass fucking excuses they throw.
+
+You don't give them lame excuses. You don't cut them off for me. You cut me off for them. Every. Single. Fucking. Time. Coordinated fucking me over. And at my expense.
+
+Fuck you asshole.
 "
