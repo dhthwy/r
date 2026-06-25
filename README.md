@@ -1,4 +1,20 @@
 "
+
+'I just wanna fuck you up.
+
+I wanna fuck you up so bad.
+
+I wanna get other people to do it too! We'll fuck you up together just like the old days.
+'
+
+If there is one truth it's that your assholeness is infinite.
+
+Fuck people up because you think it's funny.
+
+Get other assholes to do it too?
+
+Well FUCK YOU. God damn piece of shit.
+
 HUGE difference between what you are compelled to do and what you want to do.
 
 You did what you _WANTED_ to do. Fucking me up. AND DID IT OVER AND OVER AGAIN.
