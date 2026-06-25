@@ -25,4 +25,6 @@ Fuck you asshole.
 You gave me a valuable lesson. Learned much too late. 
 
 Never trust some stupid fucking bitch when they are giving you lame ass fucking excuses. If they REALLY have any potential to appreciate you. They would never do that! Great job there in showing me the difference between those you appreciate and those you do not. Years and large sums down the drain to learn that. Because you're a fucking jerk.
+
+Got another excuse for me ya fucking asshole? Of course you do. 
 "
