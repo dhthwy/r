@@ -11,4 +11,6 @@ So no.
 10k down the drain because you refused a simple convo.
 
 Whatta asshole.
+
+Not wasting another penny.
 "
