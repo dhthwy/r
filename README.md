@@ -1,4 +1,14 @@
 
+"I just busted my ass planting a border of marigolds and basil around all of my plants.
+
+Now a-storm and flooding rains come.
+
+See now that's why gardening isn't an acceptable hobby.
+
+Imma have to start everything in cups first.
+
+I no want worms eating my mater roots.
+"
 
 <img width="581" height="771" alt="Screenshot_20260626_121922" src="https://github.com/user-attachments/assets/250e2822-97b0-4eb6-9c98-35d96ac2d142" />
 
