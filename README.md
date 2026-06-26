@@ -1,3 +1,5 @@
+https://www.goodreads.com/quotes/281108-but-what-we-call-our-despair-is-often-only-the
+
 "Ah nope. They held up just fine. Amazing.
 
 <img width="480" height="640" alt="IMG_0157" src="https://github.com/user-attachments/assets/85ef4590-1bbb-4d9e-8648-331d470f6760" />
