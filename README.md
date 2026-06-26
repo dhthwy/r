@@ -1,4 +1,15 @@
 
+
+<img width="581" height="771" alt="Screenshot_20260626_121922" src="https://github.com/user-attachments/assets/250e2822-97b0-4eb6-9c98-35d96ac2d142" />
+
+
+<img width="667" height="835" alt="Screenshot_20260626_121957" src="https://github.com/user-attachments/assets/1bcee3d2-d795-4f90-a399-5030c45d74a6" />
+
+
+<img width="593" height="610" alt="Screenshot_20260626_122100" src="https://github.com/user-attachments/assets/a6f4748e-d399-4d92-ba56-fdc97e9000bc" />
+
+
+
 https://www.youtube.com/watch?v=2sJx9qbjetg&t=99s
 
 "Hell. I spent a few hundred on gardening so far.
