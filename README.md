@@ -5,7 +5,7 @@ https://www.youtube.com/watch?v=2sJx9qbjetg&t=99s
 
 I could easily spend a grand just on plants.
 
-At least it gives me purpose.
+At least it gives me purpose. I take care of my plants. They respond to it. It's nice feeling needed.
 
 You gave me a black hole.
 
