@@ -1,4 +1,19 @@
 
+https://www.youtube.com/watch?v=2sJx9qbjetg&t=99s
+
+"Hell. I spent a few hundred on gardening so far.
+
+I could easily spend a grand just on plants.
+
+At least it gives me purpose.
+
+You gave me a black hole.
+
+GET FUCKED.
+"
+
+---
+
 "Also it was I.. Me... who said 'hey, let's not do the exclusion games! How about everyone just get along?
 
 For a long time, that was my angle, and I made it clear. But I was the only one. 
