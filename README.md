@@ -1,3 +1,16 @@
+
+"Also it was I.. Me... who said 'hey, let's not do the exclusion games! How about everyone just get along?
+
+For a long time, that was my angle, and I made it clear. But I was the only one. 
+
+I don't give a DAMN FUCK what you say. YOUR ACTIONS SPOKE.
+
+I put it to the test more than once.
+
+Only god damn thing I found is that your word is worth nothing."
+
+---
+
 "
 
 Aint never had my back. Shoot me in the back, sure. You did that tons of times. But actually have my back? Nope. Proved that in '25. Proved the past prior to that was all purposefully done under free will.
