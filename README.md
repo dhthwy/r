@@ -1,3 +1,13 @@
+"Ah nope. They held up just fine. Amazing.
+
+<img width="480" height="640" alt="IMG_0157" src="https://github.com/user-attachments/assets/85ef4590-1bbb-4d9e-8648-331d470f6760" />
+
+Almost ready for the real sun.
+
+<img width="203" height="147" alt="Screenshot_20260626_170359" src="https://github.com/user-attachments/assets/17a77981-cc38-4cc2-b096-6ac9c01f7937" />
+
+"
+
 
 "I just busted my ass planting a border of marigolds and basil around all of my plants.
 
