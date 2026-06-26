@@ -7,7 +7,9 @@ I don't give a DAMN FUCK what you say. YOUR ACTIONS SPOKE.
 
 I put it to the test more than once.
 
-Only god damn thing I found is that your word is worth nothing."
+Only god damn thing I found is that your word is worth nothing.
+
+Snake. Worm. These are your traits. That's your character."
 
 ---
 
