@@ -9,7 +9,7 @@ My maters have early blight or bacteria infection.
 
 Free well water is nice... but not everyone has that luxury.
 
-I think it was Biden who said the USA can support far more people. If that were true, why the fuck are people running out of water across the whole board?
+I think it was Biden who said the USA can support far more people. If that were true, why the fuck are so many states running out of water across the whole board?
 
 More people = more climate change too.
 
