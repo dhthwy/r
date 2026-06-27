@@ -1,4 +1,20 @@
 
+"In 7 years my mom went from
+
+
+<img width="587" height="564" alt="Screenshot_20260627_133525" src="https://github.com/user-attachments/assets/7ed074d9-f963-4ba1-8bc8-837be7465f12" />
+
+to this
+
+<img width="868" height="607" alt="Screenshot_20260627_133434" src="https://github.com/user-attachments/assets/db0a33bf-c3a3-4e4d-b025-e958ea23c6c1" />
+
+Her unexpired ID is completely useless. No one accepts it. Not the same person, everyone says.
+
+7 years is a long fucking time. EXTREMELY long.
+
+Too bad some people don't give a fuck about time.
+"
+
 "I should've picked a different hobby. Expensive. Crisis everyday.
 
 If it's not bugs, it's fungus or bacteria.
