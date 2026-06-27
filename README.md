@@ -1,4 +1,13 @@
 
+<img width="480" height="640" alt="IMG_0160" src="https://github.com/user-attachments/assets/2d324235-13a1-4613-a06b-0e90e4b7a7c8" />
+
+"Looks like bacterial infection to me.
+
+AI said it was sun scorch. LOL."
+
+---
+
+
 "In 7 years my mom went from
 
 
