@@ -1,3 +1,27 @@
+
+"I should've picked a different hobby. Expensive. Crisis everyday.
+
+If it's not bugs, it's fungus or bacteria.
+
+If it's not that. It's animals or bad weather.
+
+My maters have early blight or bacteria infection.
+
+Free well water is nice... but not everyone has that luxury.
+
+I think it was Biden who said the USA can support far more people. If that were true, why the fuck are people running out of water across the whole board?
+
+More people = more climate change too.
+
+Shit for who I paid so far I could've built my self a little shed shop for fixing things.
+"
+
+---
+
+"Loyalty is not a zero sum game."
+
+---
+
 https://www.goodreads.com/quotes/281108-but-what-we-call-our-despair-is-often-only-the
 
 "Ah nope. They held up just fine. Amazing.
