@@ -7,6 +7,8 @@ Gotta learn everything the hard way. The expensive way.
 
 Falling into the same old traps - buy cheap, buy twice.
 
+No. AI is no help there. It'll just tell you that your plan is awesome, then you find out the hard way that it isn't.
+
 I don't even know where the water lines are. Got two big ass 8 ft steel stakes.
 
 Just slow. Lots of work. Hand dig down 2 feet, see if there's any lines.
