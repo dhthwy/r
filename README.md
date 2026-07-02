@@ -1,4 +1,10 @@
 
+https://www.youtube.com/shorts/UWLthvqJfnc
+
+"We'll see."
+
+---
+
 "oodles of head fakes though."
 
 ---
