@@ -1,5 +1,16 @@
 # r
 
+"Wish I could litigate on my own, but that would be stupid.
+
+My evidence is rock solid though.
+
+Fraud against an elderly and damaging a medical-aid device.
+
+Too bad it's not millions. Just thousands.
+
+Hopefully I'm like an attorney's favorite client. The file is so organized and juicy.
+"
+
 "ofc she was diagnosed with severe alzheimer.
 
 told ya.
