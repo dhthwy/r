@@ -1,5 +1,14 @@
 # r
 
+"Getting calls from corporate on the weekend...
+
+just turned off the verbal knob.
+
+not playing into their traps.
+"
+
+---
+
 "Everyone thinks AI and code would solve all the world's problems - it won't.
 
 Code is easy. Infrastructure is hard. Resources is hard.
