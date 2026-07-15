@@ -1,6 +1,12 @@
 # r
 
 "
+'not something we are able to assist with due to our very heavy caseload. I apologize for any inconvenience. This does not mean that your case lacks merit and we encourage you to seek other counsel. If you did not already have another firm in mind, please contact xxx at xxx'
+
+Gah.. but that's alright. Legal aid is free for old folks. But I can also do this on my own unless it's elevated to higher court.
+"
+
+"
 https://www.youtube.com/shorts/xfwI84J0NqQ
 
 Pretty much.
