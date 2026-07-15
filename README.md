@@ -1,5 +1,10 @@
 # r
 
+"At least their referral to a private firm validates the fraud case.
+
+Like I said. I got the juice, and everyone knows it.
+"
+
 "
 'not something we are able to assist with due to our very heavy caseload. I apologize for any inconvenience. This does not mean that your case lacks merit and we encourage you to seek other counsel. If you did not already have another firm in mind, please contact xxx at xxx'
 
