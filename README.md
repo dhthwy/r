@@ -1,5 +1,11 @@
 # r
 
+"go be with your blue and quit making other money bags a cuckold."
+
+"fucking with peoples time and money"
+
+---
+
 <img width="720" height="1080" alt="image" src="https://github.com/user-attachments/assets/830c0acf-148f-4033-9da9-4219c1555f48" />
 
 "your word IS ass. nasty fuckin 2 dolla ho."
