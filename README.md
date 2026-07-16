@@ -1,5 +1,7 @@
 # r
 
+https://www.goodreads.com/quotes/11263414-some-people-want-the-whole-world-to-go-hungry-so
+
 https://genius.com/The-all-american-rejects-gives-you-hell-lyrics
 
 https://genius.com/Lily-allen-smile-lyrics
