@@ -8,6 +8,8 @@ https://genius.com/Vial-apathy-lyrics
 
 "All that time, you laughin, smiling at my falls.. spending all that, wasting all that. You simply laughed. You laughed while sucking a cock.
 
+Because harming me has always made you happy.
+
 I'll be smiling when I've had the last laugh at your expense. Bitch."
 
 ---
