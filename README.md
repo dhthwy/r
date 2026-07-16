@@ -1,5 +1,36 @@
 # r
 
+"What was it you were saying not long ago... vaginal bleeding. 'ohh they did me so hard and so much i was bleeding.'
+
+Yeah you would say that... cause you're disgusting like that.
+
+You don't have any credibility with me any more. Period.
+
+I put 0 stock in what you put out.
+
+It's for entertainment purposes only.
+
+Even that has lost its muster.
+
+So no. I don't care to know you anymore.
+
+I have no desire whatsoever.
+
+Therefore there is absolutely no motive to do anything.
+
+You simply can't be trusted.
+
+Your word is a big ass.
+
+You blew me off too many times after I made great efforts.
+
+I don't give a fuck about your excuses.
+
+I don't even care about your excuses anymore.
+
+Entertainment purposes only.. and the entertainment part too, is gone.
+"
+
 "Eh.
 
 My bad. I need to stop posting.
