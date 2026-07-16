@@ -1,5 +1,7 @@
 # r
 
+https://www.goodreads.com/quotes/9817865-social-conscience-is-a-fashion-it-changes-every-year
+
 https://www.goodreads.com/quotes/10713715-the-foundation-of-hollywood-alchemically-turned-celluloid-into-gold-and
 
 https://www.goodreads.com/quotes/11586063-dialectics-as-a-symptom-of-decadence
