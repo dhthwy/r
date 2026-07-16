@@ -1,5 +1,12 @@
 # r
 
+<img width="720" height="1080" alt="image" src="https://github.com/user-attachments/assets/830c0acf-148f-4033-9da9-4219c1555f48" />
+
+"your word IS ass. nasty fuckin 2 dolla ho."
+
+
+---
+
 "What was it you were saying not long ago... vaginal bleeding. 'ohh they did me so hard at your would-be spot, and so much, i was bleeding.'
 
 Yeah you would say that... cause you're disgusting like that.
