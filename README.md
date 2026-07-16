@@ -2,6 +2,8 @@
 
 https://www.goodreads.com/quotes/11263414-some-people-want-the-whole-world-to-go-hungry-so
 
+https://www.goodreads.com/quotes/354533-karma-comes-after-everyone-eventually-you-can-t-get-away-with
+
 https://genius.com/The-all-american-rejects-gives-you-hell-lyrics
 
 https://genius.com/Lily-allen-smile-lyrics
