@@ -1,5 +1,22 @@
 # r
 
+"you remind me of a friend of someone i know.
+
+shes always talking about her STDs.
+
+always talking about her vagina and asshole swollen snd bleeding from having a bunch of guys fuck her for a few dolla.
+
+You're the exact same.
+
+God damn filthy skank.
+
+Betcha you were so disappointed when i didnt let you scam me again huh.
+
+Simply a well rounded disgusting individual arnt you?
+
+Shame the only thing you have going for you are those well-used holes.
+"
+
 "No one likes a liar, skank. Should've learned by now."
 
 "probably getting fucked by them right now. almost everyday. a meeting. yes thats what its called."
