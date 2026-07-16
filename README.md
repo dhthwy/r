@@ -1,5 +1,11 @@
 # r
 
+"what were you saying? Wherever I go they go to because I want him to before I even say hi to you. They're gonna fuck me until my pussy and ass bleed for free and then I'll say hello to you for a price, maybe"
+
+"lol only a cheap nasty ass hoe I think that's alright"
+
+
+
 https://youtu.be/McnCx5pqV7o?is=F07-P6M2FpzBUVeZ
 
 "go be with your blue and quit making other money bags a cuckold."
