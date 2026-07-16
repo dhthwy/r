@@ -1,5 +1,7 @@
 # r
 
+"No one likes a liar, skank. Should've learned by now."
+
 "probably getting fucked by them right now. almost everyday. a meeting. yes thats what its called."
 
 
