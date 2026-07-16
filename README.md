@@ -8,7 +8,7 @@ and said bitch, keep your stank ass holes. may '25 bitch, representing . fuck yo
 
 "what were you saying? Wherever I go they go to because I want him to before I even say hi to you. They're gonna fuck me until my pussy and ass bleed for free and then I'll say hello to you for a price, maybe"
 
-"lol only a cheap nasty ass hoe I think that's alright"
+"lol only a cheap nasty ass hoe would think that's alright"
 
 
 
