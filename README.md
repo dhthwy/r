@@ -1,6 +1,6 @@
 # r
 
-"What was it you were saying not long ago... vaginal bleeding. 'ohh they did me so hard and so much i was bleeding.'
+"What was it you were saying not long ago... vaginal bleeding. 'ohh they did me so hard at your would-be spot, and so much, i was bleeding.'
 
 Yeah you would say that... cause you're disgusting like that.
 
