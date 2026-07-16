@@ -1,5 +1,9 @@
 # r
 
+https://www.goodreads.com/quotes/10713715-the-foundation-of-hollywood-alchemically-turned-celluloid-into-gold-and
+
+https://www.goodreads.com/quotes/11586063-dialectics-as-a-symptom-of-decadence
+
 https://www.goodreads.com/quotes/11263414-some-people-want-the-whole-world-to-go-hungry-so
 
 https://www.goodreads.com/quotes/354533-karma-comes-after-everyone-eventually-you-can-t-get-away-with
