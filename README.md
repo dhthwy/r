@@ -26,8 +26,6 @@ You blew me off too many times after I made great efforts.
 
 I don't give a fuck about your excuses.
 
-I don't even care about your excuses anymore.
-
 Entertainment purposes only.. and the entertainment part too, is gone.
 "
 
