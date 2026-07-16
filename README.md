@@ -1,6 +1,16 @@
 # r
 
+https://genius.com/The-all-american-rejects-gives-you-hell-lyrics
+
 https://genius.com/Lily-allen-smile-lyrics
+
+https://genius.com/Vial-apathy-lyrics
+
+"All that time, you laughin, smiling at my falls.. spending all that, wasting all that. You simply laughed. You laughed while sucking a cock.
+
+I'll be smiling when I've had the last laugh at your expense. Bitch."
+
+---
 
 "you remind me of a friend of someone i know.
 
