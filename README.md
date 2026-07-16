@@ -1,5 +1,7 @@
 # r
 
+https://youtu.be/McnCx5pqV7o?is=F07-P6M2FpzBUVeZ
+
 "go be with your blue and quit making other money bags a cuckold."
 
 "fucking with peoples time and money"
