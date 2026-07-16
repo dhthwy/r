@@ -1,5 +1,7 @@
 # r
 
+https://genius.com/Lily-allen-smile-lyrics
+
 "you remind me of a friend of someone i know.
 
 shes always talking about her STDs.
