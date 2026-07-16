@@ -1,5 +1,9 @@
 # r
 
+"probably getting fucked by them right now. almost everyday. a meeting. yes thats what its called."
+
+
+
 "and he said fuck that nasty hoe. That nasty nasty hoe.
 
 and said bitch, keep your stank ass holes. may '25 bitch, representing . fuck you. fuck all yours.
