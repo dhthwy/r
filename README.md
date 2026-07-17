@@ -1,5 +1,22 @@
 # r
 
+"It's very interesting how someone claims a this and claims a that, but refuses to handle an issue that could be easily solved thru delegation and empathy.
+
+And that's the bottom line of why I don't trust you:
+
+You talk about empathy but you don't practice it. 'I promise I swear I'm fo real, naaaa mean, naaaa sayin.'
+
+Then set me up for major falls, big expenses... 'cause someone said so excuses.
+
+And you've always done me that way. From the first day.
+
+You might as well let cyclosporiasis do the talking for you.
+
+All you gave me was a masterclass of how to practice apathy.
+"
+
+---
+
 "Always remember that you taught me apathy and sadism.
 
 I briefly considered the next available.
