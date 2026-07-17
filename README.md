@@ -1,5 +1,16 @@
 # r
 
+"I'm confident the problems would've been resolved had you put a smidgen of energy into me.
+
+It's been clear ever since where you put your energy which has resulted in apathy against me.
+
+In the end, it was your choice to support your energy diversion that ultimately left me with nothing but apathy.
+
+Those were your actions; the only things that actually matter. Don't give a fuck what your butt says.
+
+Every time you claim but it won't happen again! Then you do it again... because you diverted your energy elsewhere.
+"
+
 "Apathy is generally characterized by a lack of feeling, emotion, interest, and concern about various aspects of life. It is not something that is typically practiced or encouraged, as it can lead to negative consequences for mental health and well-being."
 
 "Clap clap clap."
