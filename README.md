@@ -1,5 +1,11 @@
 # r
 
+"Apathy is generally characterized by a lack of feeling, emotion, interest, and concern about various aspects of life. It is not something that is typically practiced or encouraged, as it can lead to negative consequences for mental health and well-being."
+
+"Clap clap clap."
+
+---
+
 "It's very interesting how someone claims a this and claims a that, but refuses to handle an issue that could be easily solved thru delegation and empathy.
 
 And that's the bottom line of why I don't trust you:
