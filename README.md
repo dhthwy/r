@@ -1,85 +1,18 @@
 # r
 
-"The point is that she got these huge booby implants to please her man, which were too big for her body type and caused agonizing pain and health issues.
+"No I wasn't intimate with dolly. She was too bad for me.
 
-Stupid for someone to put their way of life at risk for someone else's pleasures. I mean, it better be worth it.
+Now when the other plants are saying 'it's too hot out here!'
 
-Apathy doesn't respect other people's life though. It takes without regard.
+The eggplant says 'Yeaaa! you know it's hot out here too wooaaaah!'
 
-I hope she's not dead and a better person now.
-"
+growth over 30 days.
 
----
+<img width="480" height="640" alt="IMG_0198" src="https://github.com/user-attachments/assets/da65ca41-d3c8-481f-ae02-6c3e1dfcd6ca" />
 
-https://www.boobpedia.com/boobs/Dolly_Kumar
+<img width="640" height="480" alt="IMG_0132" src="https://github.com/user-attachments/assets/c0c5a802-5050-4731-ae68-07a0e0843a26" />
 
-"I knew her once during those days. She lived in CT.
 
-She was BAD.
-
-She shat on her ex's door steps to get revenge.
-
-Taught her kids to block the faucet and leave the water running.
-
-No idea what happened to her. Probably dead.
-
-She did what her then-husband wanted and got huge boob implants, which caused health issues later.
-
-Not her real name of course.
-
-All women are the same, they say.
-"
-
----
-
-"I'm confident the problems would've been resolved had you put a smidgen of energy into me.
-
-It's been clear ever since where you put your energy which has resulted in apathy against me.
-
-In the end, it was your choice to support your energy diversion that ultimately left me with nothing but apathy.
-
-Those were your actions; the only things that actually matter. Don't give a fuck what your butt says.
-
-Every time you claim but it won't happen again! Then you do it again... because you diverted your energy elsewhere.
-"
-
-"Apathy is generally characterized by a lack of feeling, emotion, interest, and concern about various aspects of life. It is not something that is typically practiced or encouraged, as it can lead to negative consequences for mental health and well-being."
-
-"Clap clap clap."
-
----
-
-"It's very interesting how someone claims a this and claims a that, but refuses to handle an issue that could be easily solved thru delegation and empathy.
-
-And that's the bottom line of why I don't trust you:
-
-You talk about empathy but you don't practice it. 'I promise I swear I'm fo real, naaaa mean, naaaa sayin.'
-
-Then set me up for major falls, big expenses... 'cause someone said so excuses.
-
-And you've always done me that way. From the first day.
-
-You might as well let cyclosporiasis do the talking for you.
-
-All you gave me was a masterclass of how to practice apathy.
-"
-
----
-
-"Always remember that you taught me apathy and sadism.
-
-I briefly considered the next available.
-
-However, it clearly isn't available for me.
-
-Cause you were just lyin again.
-
-Even if that weren't the case, it's too vague and imprecise for me to work with it.
-
-Vague and imprecise has always been in your apathy and sadistic toolbox. Wielded against me too many times to count.
-
-Those you appreciate? You give them precision to make things happen.
-"
 
 ---
 
