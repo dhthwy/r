@@ -1,5 +1,26 @@
 # r
 
+https://www.boobpedia.com/boobs/Dolly_Kumar
+
+"I knew her once during those days. She lived in CT.
+
+She was BAD.
+
+She shat on her ex's door steps to get revenge.
+
+Taught her kids to block the faucet and leave the water running.
+
+No idea what happened to her. Probably dead.
+
+She did what her then-husband wanted and got huge boob implants, which caused health issues later.
+
+Not her real name of course.
+
+All women are the same, they say.
+"
+
+---
+
 "I'm confident the problems would've been resolved had you put a smidgen of energy into me.
 
 It's been clear ever since where you put your energy which has resulted in apathy against me.
