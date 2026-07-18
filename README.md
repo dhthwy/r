@@ -1,5 +1,16 @@
 # r
 
+"The point is that she got these huge booby implants to please her man, which were too big for her body type and caused agonizing pain and health issues.
+
+Stupid for someone to put their way of life at risk for someone else's pleasures. I mean, it better be worth it.
+
+Apathy doesn't respect other people's life though. It takes without regard.
+
+I hope she's not dead and a better person now.
+"
+
+---
+
 https://www.boobpedia.com/boobs/Dolly_Kumar
 
 "I knew her once during those days. She lived in CT.
