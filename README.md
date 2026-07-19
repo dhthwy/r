@@ -1,5 +1,39 @@
 # r
 
+"
+ A part of me wants to apologize... 
+ 
+ But you did declare war against me when I did nothing wrong.
+ 
+ Then snitched on me.
+ 
+ Then set me up for major falls.
+ 
+ Then laughed about it. Showed me nothing but eminent apathy.
+ 
+ And you continued to rinse and repeat that track long time.
+ 
+ In fact, the war is still on afaict.
+ 
+ You'll probably need to talk to me to fix that.
+ 
+ Cause I'm not doin the rinse n repeat thing anymore.
+ 
+ Filled me up... with apathy.
+ 
+ I know no one else will help with that. It was all lies from a predator.
+
+ How did it go... something like:
+ 
+ 'It's just not safe...
+ 
+ Not safe? Why?
+ 
+ Truth be told, it's not safe for my penis.'
+ "
+
+---
+
 https://www.youtube.com/watch?v=K6w3xb8gqpE
 
 "No I wasn't intimate with dolly. She was too bad for me.
