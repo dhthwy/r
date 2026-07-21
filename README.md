@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/shorts/xCuPMgF-2X0
+
+---
+
 https://www.youtube.com/shorts/WjG2-bMP6ac
 
 <img width="1024" height="614" alt="pointing" src="https://github.com/user-attachments/assets/6d2db761-fff7-4b50-8c8e-2403f6b8f4a4" />
