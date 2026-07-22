@@ -1,5 +1,20 @@
 # r
 
+"Welcome. To. The. Real.
+
+https://www.youtube.com/shorts/-plt30LkyXU
+
+https://www.goodreads.com/quotes/11263414-some-people-want-the-whole-world-to-go-hungry-so
+
+https://www.goodreads.com/quotes/354533-karma-comes-after-everyone-eventually-you-can-t-get-away-with
+
+https://genius.com/The-all-american-rejects-gives-you-hell-lyrics
+
+https://genius.com/Lily-allen-smile-lyrics
+
+https://genius.com/Vial-apathy-lyrics
+"
+
 "
 It's easy to be happy when you:
 
