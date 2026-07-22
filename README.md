@@ -1,6 +1,6 @@
 # r
 
-"I've squandered enough on my own trying only to find you dismissing me as a thorn in your side.
+"I've squandered enough on my own trying only to find you dismissing me as a thorn in your side without so much as a good memory or even a simple conversation.
 
 So that's it. Not doing that again.
 
