@@ -9,9 +9,9 @@ It's easy to be happy when you:
 4. see eachother often
 5. stand others up at their expense, dismiss their relationship because the other feels 'uncomfortable,' to satisfy the other's needs
 
-Although I find #4 dubious for long term health and apathetic. It's been my personal experience that this has made you both very happy.
+Although I find #5 dubious for long term health and apathetic. It's been my personal experience that this has made you both very happy.
 
-The fact you continued #4 for years and on multiple occasions made it a concrete pattern.
+The fact you continued #5 for years and on multiple occasions made it a concrete pattern.
 
 #1 thru #4 shows you value the relationship.
 
