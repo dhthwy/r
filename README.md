@@ -9,7 +9,7 @@ It's easy to be happy when you:
 4. see eachother often
 5. stand others up at their expense, dismiss their relationship because the other feels 'uncomfortable,' to satisfy the other's needs
 
-Although I find #5 dubious for long term health and apathetic. It's been my personal experience that this has made you both very happy.
+Although I find #5 dubious for long term health and lacking empathy. It's been my personal experience that this has made you both very happy.
 
 The fact you continued #5 for years and on multiple occasions made it a concrete pattern.
 
@@ -19,7 +19,11 @@ The fact you continued #5 for years and on multiple occasions made it a concrete
 
 It's easy to be happy when you show you value them.
 
-Others aren't going to be happy when you've been a jerk to them.
+It's difficult to be happy when you consistently feel devalued.
+
+But as has been communicated lots of times. 'They're more important.' 'Their feelings matter.' 'Their feelings take priority.'
+
+So we all know you don't even care anyway, in spite of your bullshit.
 
 It's settled.
 "
