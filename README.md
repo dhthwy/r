@@ -1,5 +1,16 @@
 # r
 
+"I've squandered enough on my own trying only to find you dismissing me as a thorn in your side.
+
+So that's it. Not doing that again.
+
+Please stop your bullshit games, though. It isn't healthy for anyone.
+
+I rarely pay much attention these days as it is just a waste of energy for someone who treated me as a thorn for years, but still harmful.
+
+And attention and my postings will definitely approach and reach zero now that this is ultimately settled.
+"
+
 "True. You did have many adventures and many wonderful memories with your husband. I'll bet you have all sorts of amazong photos together. Memories are great, aren't they?
 
 And I know I was a thorn in your side a few times when you two were just trying to have a good time.
