@@ -1,5 +1,29 @@
 # r
 
+"
+It's easy to be happy when you:
+
+1. answer their call
+2. go out on a date
+3. communicate often and privately, at least at first
+4. see eachother often
+5. stand others up at their expense, dismiss their relationship because the other feels 'uncomfortable,' to satisfy the other's needs
+
+Although I find #4 dubious for long term health and apathetic. It's been my personal experience that this has made you both very happy.
+
+The fact you continued #4 for years and on multiple occasions made it a concrete pattern.
+
+#1 thru #4 shows you value the relationship.
+
+#5 shows you don't value mine.
+
+It's easy to be happy when you show you value them.
+
+Others aren't going to be happy when you've been a jerk to them.
+
+It's settled.
+"
+
 "I've squandered enough on my own trying only to find you dismissing me as a thorn in your side without so much as a good memory or even a simple conversation.
 
 So that's it. Not doing that again.
