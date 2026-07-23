@@ -1,5 +1,21 @@
 # r    
 
+"OMG THIS IS YOU!
+
+<img width="1024" height="1024" alt="Spot-Manipulation-Disguised-as-Help jpg" src="https://github.com/user-attachments/assets/b4704a2b-7c5a-454a-89fc-5329a138807a" />
+
+
+https://www.simonstapleton.com/how-to-spot-manipulation-disguised-as-help/
+
+"Not every “helper” is helpful. Some people offer assistance with strings attached. Others weaponize kindness to get control, praise, guilt, or advantage. The worst manipulators won’t shout or throw tantrums – they’ll smile, offer a warm hand, and slip a hook into your trust."
+
+"YOU YOU YOU YOU YOU YOU
+
+BOTH OF YOU YOU YOU YOU.
+
+DISGUSTING EXCUSE FOR AN ANIMAL."
+
+
 "Before all that they were calling me 'bro'
 
 Haha.
