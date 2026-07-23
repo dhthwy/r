@@ -1,4 +1,15 @@
-# r                                                                                                                                     
+# r    
+
+"And I don't give a fuck what your lover has to say.
+
+I haven't looked at any of their trash for about a year.
+
+What they did to me was fucked up. Me directly begging to touch base. Pleading for help for days. Then takeda takeda as a way to brag. In the end you did it together, you stood me up to satisfy their needs. Not the first time.
+
+I understand now that it was all a part of your masterclass on apathy.
+
+It's wonderful to reminisce. Feels great!
+"
 
 "Given your masterclass on practial applications of apathy.
 
