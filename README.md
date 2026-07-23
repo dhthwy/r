@@ -1,5 +1,10 @@
 # r                                                                                                                                     
 
+"Given your masterclass on practial applications of apathy.
+
+I cannot guarantee to hold back your own teachings, due to the massive damage you caused me throughout many years.
+"
+
 https://www.youtube.com/shorts/0-_dw5JrC0A
 
 "Welcome. To. The. Real.
