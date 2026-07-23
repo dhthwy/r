@@ -1,4 +1,4 @@
-# r
+# r                                                                                                                                     
 
 https://www.youtube.com/shorts/0-_dw5JrC0A
 
@@ -24,7 +24,7 @@ It's easy to be happy when you:
 2. go out on a date
 3. communicate often and privately, at least at first
 4. see eachother often
-5. stand others up at their expense, dismiss their relationship because the other feels 'uncomfortable,' to satisfy the other's needs
+5. stand others up at their expense, dismiss other relationships because your lover feels 'uncomfortable,' to satisfy your lover's needs
 
 Although I find #5 dubious for long term health and lacking empathy. It's been my personal experience that this has made you both very happy.
 
