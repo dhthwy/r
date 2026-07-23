@@ -1,5 +1,18 @@
 # r    
 
+"Before all that they were calling me 'bro'
+
+Haha.
+
+You totally supported that deception.
+
+You are quite the piece of shit, aren't you?
+
+Where were you when my brother died? Oh, you were tearing me down.
+
+Where were you when my mother was dying from alzheimers? Oh, deceiving me. Tearing me down. Why? To make other people happy.
+"
+
 "
 It was cold out there. I was freezing my ass off.
 
