@@ -1,20 +1,30 @@
 # r    
 
-"And I don't give a fuck what your lover has to say.
+"
+It was cold out there. I was freezing my ass off.
 
-I haven't looked at any of their trash for about a year.
+Still I remained, shivering, my hands completely numb, believing.
 
-What they did to me was fucked up. Me directly begging to touch base. Pleading for help for days. Then takeda takeda as a way to brag. In the end you did it together, you stood me up to satisfy their needs. Not the first time.
+All the while, you'd already decided otherwise.
 
-I understand now that it was all a part of your masterclass on apathy.
+See there wasn't just eminent apathy from you. There was deception. 
 
-It's wonderful to reminisce. Feels great!
+So when I directly messaged all the necessary details. I literally got back a '?' in response.
+
+They were probably figuring out how I was able to do that, since they previously had me effectively muted.
+
+Then much later 'takeda takeda.'
+
+Little did I know, the two were giving a masterful performance of deception and apathy under the guise of kindness.
+
+Why would you lead someone just to screw them over? Why do that when you had JUST DONE THAT not long before? What kind of fucking evil monster are you?
+
+Me begging. Me pleading. The whole entire time. You simply didn't care.
+
+Only one thing was certain: it made you very happy.
 "
 
-"Given your masterclass on practial applications of apathy.
-
-I cannot guarantee to hold back your own teachings, due to the massive damage you caused me throughout many years.
-"
+---
 
 https://www.youtube.com/shorts/0-_dw5JrC0A
 
