@@ -1,5 +1,18 @@
 # r    
 
+"
+1. 'I send you off on a wild goose chase because I was too busy milking a cow to care about you.' - $1.5k
+2. 'Together, we say fuck off.' - $1k
+3. 'Together, we say fuck off again.' - $2k
+4. 'I smile and say fuck off to your face.' - free
+
+All that in a span of a year! Nice!
+
+It's a wonderful experience to pay to have people to tell me to fuck off.
+"
+
+---
+
 "OMG THIS IS YOU!
 
 <img width="1024" height="1024" alt="Spot-Manipulation-Disguised-as-Help jpg" src="https://github.com/user-attachments/assets/b4704a2b-7c5a-454a-89fc-5329a138807a" />
