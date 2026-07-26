@@ -8,7 +8,7 @@ One pattern fact I noticed is that they're around whenever you're free. You actu
 
 You clearly had no issue further devastating me by keeping me from touching base as any decent friend would do in an instant.
 
-You can talk all day and night. Your actions spoke.
+You can talk all day and night. Years worth of your actions spoke.
 "
 
 <img width="930" height="524" alt="Feeling-Nauseous-Sick-19513a3bc6" src="https://github.com/user-attachments/assets/15c52a38-87d9-4ff5-b6f6-5cb30429c7a6" />
