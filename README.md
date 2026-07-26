@@ -1,5 +1,7 @@
 # r    
 
+https://www.youtube.com/shorts/vHJJNdjn-dA
+
 "
 1. 'I send you off on a wild goose chase because I was too busy milking a cow to care about you.' - $1.5k
 2. 'Together, we say fuck off.' - $1k
