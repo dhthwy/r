@@ -1,4 +1,30 @@
-# r    
+# r
+
+https://www.youtube.com/watch?v=MRggAIuMUuc
+
+"That was just a chunk of direct costs. Add a few more gs for the total.
+
+But that pales in comparison to the indirect.
+
+Most of that was lost time and production.
+
+Some of it was another few gs spent on things wouldn't have otherwise.
+
+I could've paid tuition.
+
+I could've bought things desperately needed.
+
+I could've put it toward a fruitful relationship.
+
+etc.
+
+You destroyed my mind.
+
+You destroyed my heart.
+
+And it all could have been prevented had you simply allocated a few minutes to touch base with me.
+"
+
 
 https://www.youtube.com/shorts/vHJJNdjn-dA
 
