@@ -22,7 +22,7 @@ You destroyed my mind.
 
 You destroyed my heart.
 
-And it all could have been prevented had you simply allocated a few minutes to touch base with me.
+And it all could have been mitigated had you simply allocated a few minutes to touch base with me.
 "
 
 
