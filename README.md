@@ -1,5 +1,15 @@
 # r
 
+<img width="930" height="524" alt="Feeling-Nauseous-Sick-19513a3bc6" src="https://github.com/user-attachments/assets/15c52a38-87d9-4ff5-b6f6-5cb30429c7a6" />
+
+"6 years debilitated by severe illness.
+
+Only a monster can do this.
+
+Your masterclass on practical applications of apathy was well received."
+
+---
+
 https://www.youtube.com/watch?v=MRggAIuMUuc
 
 "That was just a chunk of direct costs. Add a few more gs for the total.
