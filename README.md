@@ -1,5 +1,22 @@
 # r
 
+"It was cold that day.
+
+See I was so devastated that I called out to you for help. Long time.
+
+I couldn't drive like that. I was stranded.
+
+But all I was told was 'takeda takeda'
+
+Because it was more important for you to tend to them for the 1000th time than to tend to a friend's well-being emergency.
+
+You didn't give a DAMN about my well-being.
+
+Don't ever expect to give a DAMN about yours.
+"
+
+---
+
 "The kicker is that you were eminetly aware of all of these things for years.
 
 Yet when someone else says: 'I'm most important' whenever there's opportunity, you chose them at the expense of me.
