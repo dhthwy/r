@@ -4,7 +4,7 @@
 
 See I was so devastated that I called out to you for help. Long time.
 
-I couldn't drive like that. I was stranded.
+I couldn't drive like that. I was stranded. I even explicitly said so.
 
 But all I was told was 'takeda takeda'
 
