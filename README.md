@@ -1,5 +1,16 @@
 # r
 
+https://www.cnbc.com/2026/07/18/how-27-year-old-left-her-job-to-start-locksmith-girl-of-nyc.html
+
+"See it costs money to launch a business. Costs money for tuition. Usually a lot more than what that girl put in.
+
+But then there's people like you who crush hopes, well being, dreams, and cash reserves.
+
+Just so you can tell em 'fuck off'
+
+You are the monster. You were always the monster.
+"
+
 "It was cold that day.
 
 See I was so devastated that I called out to you for help. Long time.
