@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/kUfCj409_lU
+
 https://www.cnbc.com/2026/07/18/how-27-year-old-left-her-job-to-start-locksmith-girl-of-nyc.html
 
 "See it costs money to launch a business. Costs money for tuition. Usually a lot more than what that girl put in.
