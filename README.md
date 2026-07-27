@@ -1,5 +1,11 @@
 # r
 
+
+
+https://github.com/user-attachments/assets/8f1e32aa-8544-4859-a4a4-903c892d80c7
+
+
+
 https://www.youtube.com/shorts/kUfCj409_lU
 
 https://www.cnbc.com/2026/07/18/how-27-year-old-left-her-job-to-start-locksmith-girl-of-nyc.html
