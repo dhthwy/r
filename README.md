@@ -1,5 +1,27 @@
 # r
 
+"A decent fella wouldn't use private comms to their advantage.
+
+In fact, a decent fella wouldn't be eavesdropping on private things in the first place.
+
+A decent fella would either seek to mitigate the privacy issue or at the very least respect the closed door.
+
+Because if the purpose isn't to mitigate, it's to instigate.
+
+And I've been saying that for ages now.
+
+There's a HUGE difference between someone who has true privacy and a public face,
+
+and someone who has one single channel with no choice in the matter.
+
+That's why I don't bother with their garbage anymore. At first I thought there some constructive purpose in it.
+
+Then I found out there wasn't.
+
+And so nothing they fucking put is no concern of mine. I simply do not give a fuck what they put."
+
+---
+
 "And what was the purpose? To move out and above this cage. However, you kept everything here and publicize it to all your sicko creeps."
 
 ---
