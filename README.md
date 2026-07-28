@@ -1,5 +1,14 @@
 # r
 
+"The people you appreciate are those you gave privacy to.
+
+There's no getting far with out it. It is that critical. They know this too. Like Mcdonalds, Ba da ba ba, this statuos quo, yeaaah, they lovin it.
+
+And you. You been supportin it.
+"
+
+---
+
 "A decent fella wouldn't use private comms to their advantage.
 
 In fact, a decent fella wouldn't be eavesdropping on private things in the first place.
