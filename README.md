@@ -5,6 +5,8 @@ https://www.youtube.com/watch?v=fZvolvRaww4 - "They say it is based on a true st
 But you turned it into full blown creep.
 
 And you thought that was going to help. LOL. You are such a disgusting one.
+
+No respectah for privacyah = no you deserve
 "
 
 "The cool thing about new things is they pay for customers.
