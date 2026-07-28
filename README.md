@@ -1,10 +1,6 @@
 # r
 
-"And what was the purpose? To move out and above this cage. However, you kept everything here and publicize it to all your sicko creeps.
-
-Fuckin assholes.
-
-Trust you? Hell no. You speak of this and speak of that but you're a fraud who continued and continues this cage for your creeps to jack off to this peep show. So fuck ya."
+"And what was the purpose? To move out and above this cage. However, you kept everything here and publicize it to all your sicko creeps."
 
 ---
 
