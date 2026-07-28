@@ -8,7 +8,7 @@ And you thought that was going to help. LOL. You are such a disgusting one.
 
 No respectah for privacyah = no you deserve.
 
-Maybe you two should have considered the impact of depriving someone of privacy. Idiots.
+Maybe you two creeps should have considered the impact of depriving someone of privacy. Idiots.
 "
 
 ---
