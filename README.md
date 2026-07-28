@@ -1,5 +1,20 @@
 # r
 
+"The cool thing about new things is they pay for customers.
+
+paze is offering $10 statement credit per $10 up to 10x times spent PER credit or debit card.
+
+so far i have 4 eligible cards. Altho it should be 6 or more. So that's at least $400 in ez free money.
+
+newegg takes paze, wendys, and 
+
+DUNKIN DONUTS.
+
+Oh yeah, dunkin coffee all day!
+"
+
+---
+
 "My perspective would probably differ drastically had you not told the same stories over the yester-years.
 
 Same shit. Different year.
