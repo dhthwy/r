@@ -4,7 +4,9 @@
 
 Same shit. Different year.
 
-My recollection is flawless."
+My recollection is flawless.
+
+Only difference is that I stopped sticking my neck out, stopped harming myself, for the girl who cried wolf."
 
 ---
 
