@@ -1,5 +1,13 @@
 # r
 
+"My perspective would probably differ drastically had you not told the same stories over the yester-years.
+
+Same shit. Different year.
+
+My recollection is flawless."
+
+---
+
 https://www.youtube.com/shorts/Q67MNTRhy2E
 
 "When you destroy someone’s life with lies, fake hopes, and promises, take it as a loan; it will come back to you with interest.”
