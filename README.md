@@ -1,5 +1,12 @@
 # r
 
+
+<img width="1242" height="245" alt="Screenshot_20260728_182829" src="https://github.com/user-attachments/assets/8c4ca4ea-a8c9-42fb-a51b-196a81adfd3f" />
+
+"$700 of this is gonna be a pain."
+
+---
+
 "The people you appreciate are those you gave privacy to.
 
 There's no getting far with out it. It is that critical. They know this too. Like Mcdonalds, Ba da ba ba, this statuos quo, yeaaah, they lovin it.
