@@ -1,5 +1,21 @@
 # r
 
+"Bottom line:
+
+1. Improve lives.
+
+Don't fuck them up.
+
+2. Respect boundaries.
+
+Don't fuck them up.
+
+3. Put a little time in to nuture relationships. Touch base. Catch up. Say hi. It aint that fuckin hard to do.
+
+Making up excuses over a 2 minute base touch tells people you don't give a DAMN.
+"
+
+---
 
 <img width="1242" height="245" alt="Screenshot_20260728_182829" src="https://github.com/user-attachments/assets/8c4ca4ea-a8c9-42fb-a51b-196a81adfd3f" />
 
