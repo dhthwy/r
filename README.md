@@ -1,6 +1,8 @@
 # r
 
+"When you destroy someone’s life with lies, fake hopes, and promises, take it as a loan; it will come back to you with interest.”
 
+---
 
 https://github.com/user-attachments/assets/8f1e32aa-8544-4859-a4a4-903c892d80c7
 
