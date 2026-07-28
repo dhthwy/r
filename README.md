@@ -1,6 +1,6 @@
 # r
 
-"And what was the purpose? To move out and above this cage. However, your intent was to keep everything here and publicize it to all your sicko creeps.
+"And what was the purpose? To move out and above this cage. However, you kept everything here and publicize it to all your sicko creeps.
 
 Fuckin assholes.
 
