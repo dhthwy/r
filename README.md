@@ -1,6 +1,6 @@
 # r
 
-https://www.youtube.com/watch?v=fZvolvRaww4 - "They say it is based on a true story. I'm inclined to agree. The connection is uncanny. He must be a fag too. I quit looking at their garbage as soon as the purpose for doing so ceased to exist. Which in the beginning, was research to help me figure things out as I didn't even know anything for certain, and even then it was sporadic.
+https://www.youtube.com/watch?v=fZvolvRaww4 - "They say it is based on a true story. I'm inclined to agree. The connection is uncanny. He must be a fag too. I quit looking at their garbage as soon as the purpose for doing so ceased to exist. Which in the beginning, was research to help me figure things out as I didn't even know anything for certain, and even then it was sporadic and very little data.
 
 But you turned it into full blown creep.
 
