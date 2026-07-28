@@ -6,8 +6,12 @@ But you turned it into full blown creep.
 
 And you thought that was going to help. LOL. You are such a disgusting one.
 
-No respectah for privacyah = no you deserve
+No respectah for privacyah = no you deserve.
+
+Maybe you two should have considered the impact of depriving someone of privacy. Idiots.
 "
+
+---
 
 "The cool thing about new things is they pay for customers.
 
