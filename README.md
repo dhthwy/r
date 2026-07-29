@@ -1,5 +1,19 @@
 # r
 
+"Cleaning my drive. That video taken at my old house.
+
+That orange cat had a defect where one of his foot's claws wouldn't stop growing. It would grow out, curl, and then back into his foot.
+
+He loved my dog. He'd constantly rub up against her and meow.. well until my dog got annoyed and bit him.
+
+But that's probably because she was always attacked by this black cat.. which resulted in the 'eye.'
+"
+
+<img width="2322" height="4128" alt="20140504_084900" src="https://github.com/user-attachments/assets/14a81ce7-d000-4f14-b61b-3399a13ed933" />
+
+<img width="2988" height="5312" alt="20150412_092136" src="https://github.com/user-attachments/assets/ab59384b-bc31-4291-8083-00b9dff715ee" />
+
+
 [snakeattack.webm](https://github.com/user-attachments/assets/f9984c75-32dd-4aac-bce7-e97f7be7a8d1)
 
 
