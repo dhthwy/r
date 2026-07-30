@@ -1,5 +1,11 @@
 # r
 
+"I spose when you spend years feeling like nothing I say or feel matters anyway, it leads to this.
+
+There were urgent critical needs. Since years ago. Unresolved."
+
+---
+
 "Cleaning my drive. That video taken at my old house.
 
 That orange cat had a defect where one of his foot's claws wouldn't stop growing. It would grow out, curl, and then back into his foot.
