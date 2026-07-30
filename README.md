@@ -1,5 +1,16 @@
 # r
 
+[Video 26.webm](https://github.com/user-attachments/assets/4a980e90-fecc-4cd7-b8d5-edf33646144a)
+
+
+"The left-most one was shot in the back just a few years after this video was recorded. The bullet pierced his lung and drowned to death on his own blood.
+
+It was the very last thing my sister saw.
+"
+
+---
+
+
 "I spose when you spend years feeling like nothing I say or feel matters anyway, it leads to this.
 
 There were urgent critical needs. Since years ago. Unresolved."
