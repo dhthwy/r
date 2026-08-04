@@ -1,5 +1,12 @@
 # r
 
+[water.webm](https://github.com/user-attachments/assets/0f244ced-13d9-4fae-b407-67adcfa3756f)
+
+"It rained so hard the ground cried."
+
+
+---
+
 https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html
 
 https://www.nytimes.com/2026/07/31/magazine/larry-ellison-ai-oracle.html
