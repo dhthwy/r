@@ -6,7 +6,7 @@ There's no one else.
 
 There never was.
 
-It's been all you all along.
+It's been all you all along. 100% yours.
 
 She showed me the true colors last year, so I know this for a fact."
 
