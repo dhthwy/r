@@ -1,5 +1,15 @@
 # r
 
+<img width="480" height="640" alt="IMG_0275" src="https://github.com/user-attachments/assets/716ee3d8-16b1-4135-a5ea-79b1c60f0f17" />
+
+"Which pepper are you? I'm the one on the outside."
+
+<img width="768" height="1024" alt="IMG_0165" src="https://github.com/user-attachments/assets/7c10549e-4fda-4613-b58f-e6f842b11c9e" />
+
+
+---
+
+
 "You're the champ.
 
 There's no one else.
