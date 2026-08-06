@@ -1,5 +1,16 @@
 # r
 
+<img width="415" height="715" alt="Screenshot_20260806_122316" src="https://github.com/user-attachments/assets/3222ae55-502b-41ef-a0ca-3a1948a9485a" />
+
+"I mean, it's legit.
+
+Free dunkin donuts via their 10 dolla gc. 7 paze cards. 700 dolla of donuts.
+
+Who gettin FAT
+"
+
+---
+
 https://www.youtube.com/shorts/TGVleJrnm7I
 
 ---
