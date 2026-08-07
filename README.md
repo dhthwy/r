@@ -1,5 +1,13 @@
 # r
 
+"So if you're unwell and no one wants you would you:
+
+1. end life
+
+2. be shamed then die on the streets"
+
+---
+
 https://www.youtube.com/shorts/8hkvQWl1bzk
 
 https://www.youtube.com/watch?v=e_PTCo_leMc&t=25s
