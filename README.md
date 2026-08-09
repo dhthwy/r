@@ -1,10 +1,15 @@
 # r
 
-"So if you're unwell and no one wants you would you:
+"There's a big difference between
 
-1. end life
+not getting what you want
 
-2. be shamed then die on the streets"
+vs
+
+not getting basic essential needs.
+
+Getting old is a nightmare.
+"
 
 ---
 
