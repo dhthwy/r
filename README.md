@@ -1,5 +1,21 @@
 # r
 
+<img width="480" height="640" alt="IMG_0291" src="https://github.com/user-attachments/assets/c865f050-e671-41a9-8dac-c22cd3808215" />
+
+"All my mater plants have some sort of bacterial or fungus infection.
+
+The cuttings I took are beginning to show it."
+
+<img width="480" height="640" alt="IMG_0305" src="https://github.com/user-attachments/assets/35012093-9dc8-4658-8f74-f413729e1b1a" />
+
+"But my eggplant is doing good.
+
+There's at least 8 of them at least baseball sized on that single plant."
+
+"Tomatos are a bitch."
+
+---
+
 "There's a big difference between
 
 not getting what you want
