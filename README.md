@@ -1,5 +1,10 @@
 # r
 
+
+https://www.youtube.com/watch?v=baVvz2HJ9bQ
+
+---
+
 <img width="480" height="640" alt="IMG_0291" src="https://github.com/user-attachments/assets/c865f050-e671-41a9-8dac-c22cd3808215" />
 
 "All my mater plants have some sort of bacterial or fungus infection.
