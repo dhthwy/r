@@ -1,6 +1,11 @@
 # r
 
-"I'm seriously considering a 3d printer.
+"
+I noticed when getting deliveries from 3rd parties for things like groceries that these people aren't college kids or idiots who failed. Many of them were clearly mature, educated adults. But they had to take on trash work just to pay bills. When low paying work becomes competitive, that's not just a problem, that's disaster.
+
+---
+
+I'm seriously considering a 3d printer.
 
 Being nickeled and dimed for every plastic thing that breaks gets expensive.
 
