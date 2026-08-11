@@ -1,5 +1,24 @@
 # r
 
+"I'm seriously considering a 3d printer.
+
+Being nickeled and dimed for every plastic thing that breaks gets expensive.
+
+But I'm also trying to minimize my things.
+
+Given my age, I'll probably be stuck sucking dick for $10 an hour. Which means I won't be able to afford proper housing.
+
+Even the $10 jobs are hyper competitive these days. There's no place for old people.
+
+I'm too sick to be messing with some degree. And certifications are mostly trash.
+
+CNAs bust ass for 2k a month, which again, doesn't even come close to meeting essential expenses. Do a LOT of driving too. My P's had lots of CNAs. All were dirt broke. One nice woman had to move back to NY because she drove her car into the ground working a trash CNA job.
+
+There was a time I had hope... but age and massive changes to industry changed that.
+
+Cannot count on filling time with work. The bottom 80% require 2 to 3 jobs AND at least two workers in the household just for an apartment leading to hyper competition across the board.
+"
+
 
 https://www.youtube.com/watch?v=baVvz2HJ9bQ
 
