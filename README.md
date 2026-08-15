@@ -1,9 +1,16 @@
 # r
 
 
-"Guess it's reached to the point where whatever you put out means absolutely nothing for me.
+"
+I don't know anything.
 
-But that's fine. Choice made when ditching essential, basic communication.
+Except
+
+I'm pretty bad off. I've been unable.
+
+All I know is I cannot repeat what has gone before.
+
+Giving me the same recipe over and over where it lft me in the cold doesn't inspire confidence.
 "
 
 ---
