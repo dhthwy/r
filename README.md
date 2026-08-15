@@ -1,5 +1,9 @@
 # r
 
+"
+goddamn computer problems. Too old for this shit.
+"
+
 "Rib pain gets so bad thjat it radiates thru my entire body.
 
 as if my lungs are hitting up against my ribs when i breathe.
