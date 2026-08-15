@@ -1,5 +1,23 @@
 # r
 
+"Rib pain gets so bad thjat it radiates thru my entire body.
+
+as if my lungs are hitting up against my ribs when i breathe.
+
+I'm a deformed mofo.
+
+'Just ignore it' doesn't work when it get sso bad you can't concentrate on anything else.
+
+All sorts of things trigger it.
+
+The only thing that helps is laying down.
+
+Sometimes I'll wake up and I won't feel like my ribs are crushing me, and the relief feels wonderful.
+
+I used to punch myself in the ribs just to feel something different.
+
+Remember to get the young's spine checked properly. No one deserves to live in constant pain cause their p's didn't give a fuck.
+"
 
 "
 I don't know anything.
