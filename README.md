@@ -1,6 +1,10 @@
 # r
 
+
+
 "
+can't see anymore getting too old.
+
 I need to sell my Mac mini so I don't even use it anymore. Stupid purchase with only eight gigs a ram.
 
 I just spent two days diagnosing and fixing my stupid ass computer.
