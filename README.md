@@ -1,6 +1,18 @@
 # r
 
 "
+I need to sell my Mac mini so I don't even use it anymore. Stupid purchase with only eight gigs a ram.
+
+I just spent two days diagnosing and fixing my stupid ass computer.
+
+Hours of that was fighting windows just to be able to get back onto it so I can run more diagnostics to ensure that it's actually fixed.
+
+That's why that's why I use linux. fuck all that.
+
+But since the damn problems showed up in windows, you know make sure I test shit there before I take this goddamn computer off the damn shoebox and put it back inside the fucking case.
+
+
+
 goddamn computer problems. Too old for this shit.
 "
 
