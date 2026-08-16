@@ -1,5 +1,32 @@
 # r
 
+"I suppose. I've just been falling apart completely :)
+
+My head isn't right. I've been feeling dizzy.
+
+Can't drive on the highway less I go like 45.
+
+And looks like there's going to be family deaths very frequently from here on in.
+
+I'd rather not go, but no one else can take these old people. That isn't helpful for my mental health.
+
+On the bright side my strawberries are looking somewhat well.
+
+I let them go and now they're dense and probably developing fungus on their leaves, but they're strawberries. Not weak ass tomatoes.
+
+I need to move them but it's been too damn hot. 100 degrees all the damn time. ANd extremely humid all the time.
+
+And I picked my first eggplant. Yum. Baked so creamy."
+
+<img width="480" height="640" alt="IMG_0369" src="https://github.com/user-attachments/assets/c5525c18-a7cd-4667-8e63-9f320c9278de" />
+
+<img width="331" height="450" alt="Screenshot_20260816_172301" src="https://github.com/user-attachments/assets/9491e7b3-188b-49cc-8b15-b110b4f8f185" />
+
+
+
+---
+
+
 <img width="3024" height="4032" alt="image" src="https://github.com/user-attachments/assets/848315a8-8427-4beb-8c15-9af193438259" />
 
 
