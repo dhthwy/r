@@ -1,8 +1,12 @@
 # r
 
+<img width="3024" height="4032" alt="image" src="https://github.com/user-attachments/assets/848315a8-8427-4beb-8c15-9af193438259" />
 
 
 "
+yes, literally running on shoebox. No, I don’t wear sketchers those aren’t mine.
+
+
 can't see anymore getting too old.
 
 I need to sell my Mac mini so I don't even use it anymore. Stupid purchase with only eight gigs a ram.
