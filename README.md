@@ -1,5 +1,11 @@
 # r
 
+
+<img width="614" height="135" alt="Screenshot_20260818_185517" src="https://github.com/user-attachments/assets/3ecea00e-ee40-4b37-b8a8-5cf124a790ee" />
+
+
+---
+
 "I suppose. I've just been falling apart completely :)
 
 My head isn't right. I've been feeling dizzy.
