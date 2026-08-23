@@ -1,5 +1,9 @@
 # r
 
+"Woohoo. I love it when I tear a room apart to find a missing $300. Then I count again and realize it was all there from the start."
+
+---
+
 "“The face that stares back at you from the mirror later in life is so different than when you're young. There's a winnowing away and a shutting down. A sense of something having been taken from you and you don't know exactly what it is, just that it isn't there anymore.”
 ― Jeff VanderMeer, Hummingbird Salamander"
 
