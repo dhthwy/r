@@ -1,5 +1,18 @@
 # r
 
+"Fake.
+
+Superficial.
+
+Soulless zombie.
+
+Mean. Nasty.
+
+Flaky.
+
+Yes, I do see your character.
+"
+
 https://www.youtube.com/watch?v=7RQgvb2hcYE
 
 
