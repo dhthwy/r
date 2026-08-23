@@ -11,6 +11,8 @@ Mean. Nasty.
 Flaky.
 
 Yes, I do see your character.
+
+Bad character has NOTHING to do with distance. Lame ass excuse.
 "
 
 https://www.youtube.com/watch?v=7RQgvb2hcYE
