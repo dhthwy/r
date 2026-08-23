@@ -1,5 +1,21 @@
 # r
 
+https://www.youtube.com/watch?v=7RQgvb2hcYE
+
+
+https://www.youtube.com/shorts/vbetsuFbvhw
+
+
+https://www.youtube.com/shorts/OabM81tDyKg
+
+
+https://www.youtube.com/shorts/rTUzwWnjgpg
+
+
+https://www.youtube.com/watch?v=OdnW0t1_uuY
+
+---
+
 .
 
 "I really don't have the will nor the resources to continue wasting on BULLSHITTERS.
