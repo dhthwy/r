@@ -3,7 +3,7 @@
 "
 I consider myself quite generous and easy-going. Provided I don't feel that I've been intentionally wronged or harmed, I generally keep it shut-as has been demonstrated.
 
-But when it comes to people who never actually help, who take, take, take- especially when they're perfectly capable of contributing to resolving a problem that could have easily been resolved- my generosity has its limits.
+But when it comes to people who never actually help, who take, take, take- especially when they're perfectly capable of contributing to resolving a problem that should have easily been resolved LONG time ago- my generosity has its limits.
 
 That's your problem. You created it, not me. And I won't waste any more of my time or resources dealing with problems you've intentionally created at my expense.
 
