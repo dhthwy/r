@@ -4,6 +4,8 @@
 
 Because you don't know the cards.
 
+Because it wasn't built yet.
+
 Otherwise, it's a waste of time.
 
 There is no 'I'm just havin fun. I'm just in my feelings.'
