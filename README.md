@@ -1,5 +1,20 @@
 # r
 
+"
+I consider myself quite generous and easy-going. Provided I don't feel that I've been intentionally wronged or harmed, I generally keep it shut-as has been demonstrated.
+
+But when it comes to people who never actually help, who take, take, take- especially when they're perfectly capable of contributing to resolving a problem that could have easily been resolved- my generosity has its limits.
+
+That's your problem. You created it, not me. And I won't waste any more of my time or resources dealing with problems you've intentionally created at my expense.
+
+Your 'friends' treat your 'friends' like trash? Fuck them.
+
+Keep your trash away from me. I won't be going anywhere near people like that.
+
+YOUR PROBLEM. YOU CREATED IT. YOU FIX IT."
+
+---
+
 https://www.historysnob.com/eras/20-archaeological-sites-ruined-by-treasure-hunters/1
 
 "
