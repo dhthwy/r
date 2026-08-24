@@ -7,7 +7,7 @@ But when it comes to people who never actually help, who take, take, take- espec
 
 That's your problem. You created it, not me. And I won't waste any more of my time or resources dealing with problems you've intentionally created at my expense.
 
-Your 'friends' treat your 'friends' like trash? Fuck them.
+Your 'friends' treat your 'friends' like trash? Fuck them. You know damn well that I did my best to make things right.
 
 Keep your trash away from me. I won't be going anywhere near people like that.
 
