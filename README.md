@@ -2,7 +2,7 @@
 
 "It's different when you actually have the op to connect with people often and easily.
 
-That's not the case here. You can't just add poison to a formation. That isn't an update. It's foundation laying. Taking away from that after recent history is a show-stopper. YOU DON'T HAVE ANY IDEA HOW MUCH TIME IS LEFT. SO WE DON'T INTENTIONALLY REDUCE IT 'cause someone else when that someone else was an unhelpful trash talking two-faced jerk.
+That's not the case here. You can't just add poison to a formation. That isn't an update. It's foundation laying. Taking away from that after recent history is a show-stopper. YOU DON'T HAVE ANY IDEA HOW MUCH TIME IS LEFT. SO WE DON'T INTENTIONALLY REDUCE IT 'cause someone else when that someone else was an unhelpful greedy trash talking two-faced jerk.
 "
 
 "
