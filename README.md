@@ -17,6 +17,8 @@ Either do it right or not at all. I don't play games. I'm a serious bitch.
 Test again. Out immediately.
 
 Not playing penis games.
+
+Lame ass penis games already account for outrageous losses.
 "
 
 ---
