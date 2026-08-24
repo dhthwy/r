@@ -1,5 +1,26 @@
 # r
 
+"First. Second. And Third.
+
+Because you don't know the cards.
+
+Otherwise, it's a waste of time.
+
+There is no 'I'm just havin fun. I'm just in my feelings.'
+
+That's a cock talking.
+
+Are you a cock?
+
+Either do it right or not at all. I don't play games. I'm a serious bitch.
+
+Test again. Out immediately.
+
+Not playing penis games.
+"
+
+---
+
 "I shouldn't have to explain these things to you over n over n over again. Wtf is wrong with your brain."
 
 "It's different when you actually have the op to connect with people often and easily.
