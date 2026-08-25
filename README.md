@@ -1,5 +1,11 @@
 # r
 
+https://en.wikipedia.org/wiki/Retarded_depression
+
+"You built that."
+
+---
+
 "First. Second. And Third.
 
 Because you don't know the cards.
