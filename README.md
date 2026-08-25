@@ -1,5 +1,18 @@
 # r
 
+"Play with your penis elsewhere, or find something else.
+
+Can't trust you though.
+
+You're a liar. And your word is worth less than cat shit.
+
+I won't be waiting around in any case for some lying ass who stood me up many times.
+
+I have doubts whether I'll feel like it's worth the bother. Ruined place afterall. You certainly know how to fuck something up.
+"
+
+---
+
 https://en.wikipedia.org/wiki/Retarded_depression
 
 "You built that.
