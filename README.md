@@ -1,5 +1,9 @@
 # r
 
+"Sometimes when dirty skank liars play play dirty such as yourself, you simply play at their level.
+
+Dirty foul balls. Love it. Lets start with dog food bahaha.""
+
 "No mo nice guy you fake ass devil bitch.
 
 Give You Hell. Fuck you.  naaaames. I dont give a fuck. you arnt nothing but a skank.•"
