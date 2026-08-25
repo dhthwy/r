@@ -1,5 +1,9 @@
 # r
 
+"No mo nice guy you fake ass devil bitch.
+
+Give You Hell. Fuck you.  naaaames. I dont give a fuck. you arnt nothing but a skank.•"
+
 "Pay for abuse. Ohhh. Thats your style.
 
 Well sheeit theres a huge debt to pay.
