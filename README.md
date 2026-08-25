@@ -1,5 +1,9 @@
 # r
 
+"light the night for real.
+
+fuckin hate fake ass backstabbing bitches."
+
 "bet you didnt waste 10k of your penis money for a whole lot of drama, shit, nothing good, slienation. did you? fuckin jerk."
 
 "paaay back. fuck you snd upur dick."
