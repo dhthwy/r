@@ -2,7 +2,13 @@
 
 https://en.wikipedia.org/wiki/Retarded_depression
 
-"You built that."
+"You built that.
+
+Just leave someone retarded for years.
+
+Get all your friends to talk trash.
+
+Who wouldn't be pissed?"
 
 ---
 
