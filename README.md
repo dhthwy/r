@@ -1,5 +1,9 @@
 # r
 
+"bet you didnt waste 10k of your penis money for a whole lot of drama, shit, nothing good, slienation. did you? fuckin jerk."
+
+"paaay back. fuck you snd upur dick."
+
 "Play with your penis elsewhere, or find something else.
 
 Can't trust you though.
