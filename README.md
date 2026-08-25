@@ -1,5 +1,9 @@
 # r
 
+"Oh yeah
+
+We dont stand up interviewees either after they made big expenses. Im sure you do it as youre not well natured. Twisted Sicko."
+
 "Sometimes when dirty skank liars play play dirty such as yourself, you simply play at their level.
 
 Dirty foul balls. Love it. Lets start with dog food bahaha.""
