@@ -1,5 +1,12 @@
 # r
 
+"Pay for abuse. Ohhh. Thats your style.
+
+Well sheeit theres a huge debt to pay.
+
+Lets do that. So much fun!
+"
+
 "light the night for real.
 
 fuckin hate fake ass backstabbing bitches."
