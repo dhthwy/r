@@ -1,5 +1,11 @@
 # r
 
+"
+i'm sorry I didn't make it. I was too busy riding penis. I know it cost a lot of time and money, but I just can't make it riding. It's just so much more important than you.
+
+Yeah, tell that you see your next interview or do that see how that goes bitch.
+"
+
 "Oh yeah
 
 We dont stand up interviewees either after they made big expenses. Im sure you do it as youre not well natured. Twisted Sicko."
