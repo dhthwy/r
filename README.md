@@ -5,6 +5,8 @@
 That that THING couldn't spare a litte bit of time to connect cause it would've meant one less nut for the cock is disgusting.
 
 You truly are a piece of shit.
+
+Try explaining that to your interviewee.
 "
 
 ---
