@@ -1,8 +1,16 @@
 # r
 
+https://www.youtube.com/shorts/s5QFvOpDqdQ
+
 https://www.youtube.com/watch?v=EUQrbYC3IRA
 
 "Paid for abuse."
+
+“Fake friends; those who only drill holes under your boat to get it leaking; those who discredit your ambitions and those who pretend they love you, but behind their backs they know they are in to destroy your legacies.”
+― Israelmore Ayivor
+
+“There's no fall greater than one from a burnt bridge.”
+― Carlos Wallace
 
 ---
 
