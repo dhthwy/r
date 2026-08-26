@@ -7,6 +7,12 @@ That that THING couldn't spare a litte bit of time to connect cause it would've 
 You truly are a piece of shit.
 
 Try explaining that to your interviewee after a long trek.
+
+'I'm sorry. A nut was more important.'
+
+HAHAHAHA.
+
+Somethin else doesn't even begin to describe you.
 "
 
 ---
