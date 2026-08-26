@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=WltDp9V18VI&t=34s
+
 “The thought makes my teeth gnash and my lip snarl and my jaw fill with a scream. A scream that always has the same chorus. What they took away, seemingly so easily, was a person. "This was a person!"
 
 A person who could watch a sunset and feel the wind against their cheek. Smell fresh-cut grass or listen to a Bowie song. A person who could scrape up enough money to buy themselves a hot-fudge sundae.
