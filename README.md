@@ -1,5 +1,14 @@
 # r
 
+"At least you know who she is talking to.
+
+That that THING couldn't spare a litte bit of time to connect cause it would've meant one less nut for the cock is disgusting.
+
+You truly are a piece of shit.
+"
+
+---
+
 "
 i'm sorry I didn't make it. I was too busy riding penis. I know it cost a lot of time and money, but I just can't make it riding. It's just so much more important than you.
 
