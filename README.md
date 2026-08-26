@@ -1,5 +1,11 @@
 # r
 
+https://www.youtube.com/watch?v=EUQrbYC3IRA
+
+"Paid for abuse."
+
+---
+
 <img width="629" height="629" alt="Screenshot_20260825_233451" src="https://github.com/user-attachments/assets/7fbe0e64-dda0-4371-bb60-2b8c5553574b" />
 
 
