@@ -1,5 +1,9 @@
 # r
 
+https://www.goodreads.com/quotes/tag/give-and-take
+
+---
+
 https://www.youtube.com/watch?v=WltDp9V18VI&t=34s
 
 “The thought makes my teeth gnash and my lip snarl and my jaw fill with a scream. A scream that always has the same chorus. What they took away, seemingly so easily, was a person. "This was a person!"
