@@ -1,5 +1,9 @@
 # r
 
+"Symptoms of browning, defoliation,  spots, and wilting. Tissue from the spots tested positive for bacterial streaming. Symptomatic tissue tested positive for the bacteria, Xanthomonas. Xanthomonas species cause the disease Bacterial Spot"
+
+---
+
 https://www.goodreads.com/quotes/tag/give-and-take
 
 ---
