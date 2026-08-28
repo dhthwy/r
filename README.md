@@ -3,7 +3,7 @@
 https://www.youtube.com/shorts/a2bHHpInDoQ
 
 "
-That would be the only fair thing to do.
+That would be the only fair thing left to do.
 
 You're a snitch.
 
