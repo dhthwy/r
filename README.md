@@ -1,5 +1,18 @@
 # r
 
+https://www.youtube.com/shorts/a2bHHpInDoQ
+
+"
+That would be the only fair thing to do.
+
+You're a snitch.
+
+You did it to do me harm.
+
+Give me one good reason why I shouldn't do the same?"
+
+---
+
 "Symptoms of browning, defoliation,  spots, and wilting. Tissue from the spots tested positive for bacterial streaming. Symptomatic tissue tested positive for the bacteria, Xanthomonas. Xanthomonas species cause the disease Bacterial Spot"
 
 ---
