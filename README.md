@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/shorts/-0gjY77UtYQ
+
+Quod des, id accipias
+
 https://www.youtube.com/shorts/a2bHHpInDoQ
 
 "
