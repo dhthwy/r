@@ -1,5 +1,17 @@
 # r
 
+https://www.everydayhealth.com/emotional-health/how-deal-with-inconsiderate-people/
+
+"Can't fix people like that. Can't teach that.
+
+It's your nature.
+
+So when I say you're not well natured. That is what I mean.
+
+It isn't surprising the people you surround yourself with is the same way."
+
+---
+
 "Abuse isn't kindness.
 
 I understand you think it's fair.
