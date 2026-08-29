@@ -1,5 +1,11 @@
 # r
 
+"I DON'T PAY FOR YOUR ABUSE ANYMORE.
+
+I DISH IT OUT FOR FREE."
+
+---
+
 "Y
 Using other people to fuck me up not once but many times was the dumbest things.
 
