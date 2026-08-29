@@ -1,5 +1,19 @@
 # r
 
+"Y
+Using other people to fuck me up not once but many times was the dumbest things.
+
+The fact you continue trying to do so makes me even more retarded trying to make sense of that.
+
+Sworn enemies for sure.
+
+It wasn't enough for you to do it on your own. That would've at least been a decent humanely thing to do.
+
+You had to get cocks to do it for you.
+
+What a way to make an enemy.
+"
+
 "If you wanted to be a bad person. Fine.
 
 But doing horrible things to other people with your scams on a habitual basis was about the stupidest thing to do.
