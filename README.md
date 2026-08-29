@@ -1,6 +1,6 @@
 # r
 
-"One one think it's a reasonable request.
+"One would think it's a reasonable request.
 
 Put the money you would've spent on that elsewhere, at least once.
 
