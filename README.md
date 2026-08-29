@@ -1,5 +1,24 @@
 # r
 
+"If you wanted to be a bad person. Fine.
+
+But doing horrible things to other people with your scams on a habitual basis was about the stupidest thing to do.
+
+Then you call it fair.
+
+HAHAHAHA.
+
+Not just a bad person. Fucking dumb.
+
+Do terrible things. Scam people. Call it fair.
+
+I'm sorry. That doesn't buy you anything good.
+
+Always better to be honest rather than scam.
+
+The worst thing of all though, is that you continue the scams.
+"
+
 https://www.youtube.com/shorts/-0gjY77UtYQ
 
 Quod des, id accipias
