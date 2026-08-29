@@ -17,6 +17,10 @@ I'm sorry. That doesn't buy you anything good.
 Always better to be honest rather than scam.
 
 The worst thing of all though, is that you continue the scams.
+
+No one is going to have your back like that. No one is going to protect like that.
+
+Just the opposite.
 "
 
 https://www.youtube.com/shorts/-0gjY77UtYQ
