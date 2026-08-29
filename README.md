@@ -6,7 +6,7 @@ I understand you think it's fair.
 
 Cutting people out and leaving them in the dark.
 
-Letting people wander aimlessly. Leaving it all up to chance. Wasting time and resources.
+Letting people wander aimlessly long time. Leaving it all up to chance. Wasting time and resources.
 
 Renouncing on prior promises and agreements without telling them.
 
