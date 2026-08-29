@@ -14,7 +14,7 @@ Renouncing at the last minute, cause a cock twitch occurred.
 
 Bragging on how often they stuff the turkey.
 
-Laughing at people after incurring losses to resolve things.
+Laughing at people after they've incurred losses in attempts to resolve things.
 
 Using people's bad circumstances to gain advantages.
 
