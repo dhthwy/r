@@ -4,6 +4,8 @@
 
 But doing horrible things to other people with your scams on a habitual basis was about the stupidest thing to do.
 
+You Violate people's privacy. Violate people's trust. Violate people's confidence.
+
 Then you call it fair.
 
 HAHAHAHA.
