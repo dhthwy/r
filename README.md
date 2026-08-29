@@ -6,6 +6,8 @@ But doing horrible things to other people with your scams on a habitual basis wa
 
 You Violate people's privacy. Violate people's trust. Violate people's confidence.
 
+Do it for years. Play tricks. Try to get people to fall for them every time. Laugh when they do.
+
 Then you call it fair.
 
 HAHAHAHA.
