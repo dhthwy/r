@@ -1,5 +1,24 @@
 # r
 
+"It's all about control.
+
+They don't really want any healing or a fixin.
+
+Control allows for quietly poisoning the well.
+
+I'm already fucked. I wasn't joking when I said I am too messed up to even function at the most basic level.
+
+So I'll be dead soon anyway. There is no help.
+
+Brain no good any more. People rendered retarded get dead.
+
+<img width="898" height="608" alt="Screenshot_20260829_165012" src="https://github.com/user-attachments/assets/a0ccb7f3-8ad0-40ee-a086-0debc206000c" />
+
+"
+
+
+"
+
 https://www.everydayhealth.com/emotional-health/how-deal-with-inconsiderate-people/
 
 "Can't fix people like that. Can't teach that.
