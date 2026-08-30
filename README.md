@@ -19,6 +19,18 @@ That is exactly what happened.
 THEY certainly wouldn't stand for that.
 
 Neither will I.
+
+'Oh but it's ok. Let's just keep doing that. It's a fun game!'
+
+And it's precisely that attitude. This wasn't a 30 minute waste.
+
+It's a big drain. A major setup.
+
+We don't do that. Plan in secret and set people up for big losses.
+
+Fucked up. You aint nice.
+
+I've only asked you to stop being an asshole a million times.
 "
 
 ---
