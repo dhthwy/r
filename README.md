@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=JHAc9nw2qrs&t=331s
+
 "Optimism LOL.
 
 Opto left when you silently discarded them for some corn AFTER swearing up and down that they wouldn't be kicked to the curb.
