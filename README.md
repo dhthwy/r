@@ -1,5 +1,20 @@
 # r
 
+"Optimism LOL.
+
+Opto left when you silently discarded them for some corn AFTER swearing up and down that they wouldn't be kicked to the curb.
+
+'takeda takeda takeda takeda'
+
+Gotta get some nuts in. Just leave em for dead. That's your MO.
+
+And you talk about optimism. HAHAHAHAHA.
+
+You're the 'do as I say, not as I do' type arentcha?
+
+OPTIMISM. LMFAO.
+"
+
 "Interestingly, requests I've made is something given freely to others all the time.
 
 Yet when I make it - huge problem.
