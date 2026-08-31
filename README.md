@@ -1,62 +1,57 @@
 # r
 
-https://www.youtube.com/watch?v=JHAc9nw2qrs&t=331s
-
-"Optimism LOL.
-
-Opto left when you silently discarded them for some corn AFTER swearing up and down that they wouldn't be kicked to the curb.
-
-'takeda takeda takeda takeda'
-
-Gotta get some nuts in. Just leave em for dead. That's your MO.
-
-And you talk about optimism. HAHAHAHAHA.
-
-You're the 'do as I say, not as I do' type arentcha?
-
-OPTIMISM. LMFAO.
 "
+I finally finished one simple project.
 
-"Interestingly, requests I've made is something given freely to others all the time.
+My car is so old the dome light switch disintegrated when I touched it.
 
-Yet when I make it - huge problem.
+It took me weeks to put a new switch in.
 
-Don't kid yourself.
+I learned how to solder tho, finally. Only took 40 years of wanting to do it.
 
-The real reason it didn't pan out in the past is because you were too focused elsewhere.
+My brother could've fixed it in 30 minutes.
 
-And you had no issues leaving me to rot while immediately giving others prime treatment.
+That's the difference.
 
-Also interesting is that I saw you first. So visibility certainly wasn't it.
+Retarded depression isn't a joke.
 
-You simply immediately ditched me so you can be with those you made a priority.
+I'm always in pain. I constantly feel like I'm going to drop dead.
 
-That is exactly what happened.
+I stopped working out because of that.
 
-THEY certainly wouldn't stand for that.
+Muscle fatigue wasn't the problem.
 
-Neither will I.
+Something isn't right with me.
 
-'Oh but it's ok. Let's just keep doing that. It's a fun game!'
+Now I consider my age. Around this time, family members had artery blockages requiring intervention.
 
-And it's precisely that attitude. This wasn't a 30 minute waste.
+They had to take nitro.
 
-It's a big drain. A major setup.
+They were fat tho. But my grandfather certainly was not - died of heart attack in his 50s.
 
-We don't do that. Plan in secret and set people up for big losses.
+I didn't have the time to go into old age all f'd up.
 
-Fucked up. You aint nice.
+So I have one project completed. But many more to go.
 
-I've only asked you to stop being an asshole a million times.
-"
+And I still need a car. You absolutely need a car to survive.
 
----
+Many of these homeless jobless people I've encountered are only screwed up from lack of transportation.
 
-"It's hard to be nice when you're left out, kicked, and left for dead.
+No one will hire without reliable transportation. There is no help for things like that.
 
-I require exclusive private time where I am the only priority within a vicinity.
+A kind health care worker lost her car. Nice woman.
 
-Anything else won't work for me due to a history of habitual abuse.
+Was so desperate she would leave her kids here for a few hours until she finished her shift.
+
+Then one day her car died. She had to move back to NY.
+
+Maybe if my brother was still around. Maybe if I wasn't so sick, I could've offered some help to get her back on the road.
+
+It's not just me who gets impacted. There aren't many helpers out there.
+
+I used to be willing to help people out with things like that.
+
+But I've been too sick to even help myself.
 "
 
 
