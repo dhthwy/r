@@ -1,5 +1,11 @@
 # r
 
+https://www.youtube.com/watch?v=CTIncDdEWHI
+
+"I'm sorry, please break it to your guy that I'm not gay."
+
+---
+
 "All of my mater plants have bacterial spot.
 
 So I murdered them.
