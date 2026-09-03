@@ -1,5 +1,13 @@
 # r
 
+"
+0.0000001% of what you give pretty much everyone else would've probably sufficed.
+
+But I understand, you simply didn't have the time to give 0.0000001% of a day.
+
+Too many other higher priorities.
+"
+
 "So far away.
 
 I've said that it was getting worse every day.
