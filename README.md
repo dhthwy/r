@@ -1,5 +1,18 @@
 # r
 
+"So far away.
+
+I've said that it was getting worse every day.
+
+For years.
+
+You were too busy helping yourself to care though.
+
+Too bad off to do much of anything at all.
+"
+
+---
+
 https://www.youtube.com/watch?v=CTIncDdEWHI
 
 "I'm sorry, please break it to your guy that I'm not gay."
