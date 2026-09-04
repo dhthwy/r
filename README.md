@@ -1,5 +1,14 @@
 # r
 
+"I mean, I keep my options open.
+
+Burning bridges and locking doors unnecessarily is almost never wise.
+
+But I must say: there are two things that can ruin life with the quickness: the law and bitches.
+"
+
+---
+
 https://www.youtube.com/watch?v=WdkxQzwnirg
 
 https://www.youtube.com/shorts/o5ny-wdbtdY
