@@ -1,5 +1,18 @@
 # r
 
+"Someone reached out to me awhile back and said
+
+'You got any btc?'
+
+And I said.. 'nah, I knew all about it when it was only worth a buck. But I was a dumbass and didn't bite.'
+
+It isn't such a bad idea to put a little cash into new stuff even if they seem dubious.
+
+If I had only bought just 20 btc. That'd be nice.
+
+Only in my dreams.
+"
+
 "I mean, I keep my options open.
 
 Burning bridges and locking doors unnecessarily is almost never wise.
