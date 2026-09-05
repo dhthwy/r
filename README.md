@@ -2,7 +2,9 @@
 
 "When you die inside, you stop taking care of yourself.
 
-The will to live is gone. The only thing keeping me alive is that my parents cry whenever I say I need to go because they can't take care of themselves."
+The will to live is gone. The only thing keeping me alive is that my parents cry whenever I say I need to go because they can't take care of themselves.
+
+I wasn't joking. But that's alright. It doesn't really matter anymore."
 
 ---
 
