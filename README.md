@@ -1,5 +1,11 @@
 # r
 
+"When you die inside, you stop taking care of yourself.
+
+The will to live is gone. The only thing keeping me alive is that my parents cry whenever I say I need to go because they can't take care of themselves."
+
+---
+
 "Sometimes it is better not to know.
 
 I thought I would recover enough on my own.
