@@ -1,5 +1,8 @@
 # r
 
+<img width="916" height="400" alt="Screenshot_20260907_214133" src="https://github.com/user-attachments/assets/fbaf3f3b-8223-4b2c-948f-d19ecfe33237" />
+
+
 "
 1. Caretakers are often busy with things like dr's appointsments or surgery that can't be rescheduled at the last minute.
 
