@@ -1,5 +1,12 @@
 # r
 
+<img width="1170" height="1091" alt="image" src="https://github.com/user-attachments/assets/7ad68c7e-7af1-4f42-aa96-79219925fb8b" />
+
+”
+try to fucking murder me
+
+Hey, I just want to waste your money yo and send you off on wild goose chases where you find nothing at all”
+
 "
 
 there are two major forms of homelessness. 
