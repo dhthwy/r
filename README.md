@@ -1,5 +1,34 @@
 #
 
+"Over time, I've grown to understand that NO ONE gives a fuck how I am doing- good or bad.
+
+Whether I'm dead or alive.
+
+I've only ever had assholes.
+
+Nothing but fucking assholes.
+
+It was too much to ask for you to NOT be an asshole to me.
+
+Be nice I beg.
+
+Fuck no you say.
+
+'I was like please... I need a friend to help me thru this. I'm about to turn 40.
+
+I need help waking up from this nightmare.'
+
+And you're like
+
+'FUCK YOUR 40s. I destroy your whole decade!'
+
+Wonderful people.
+
+It was always too much for you to be kind to me.
+"
+
+---
+
 "Girl here got a job making $200 a week. Super excited about it. 
 
 It was a super competitive job too. 100s of applicants. For $200 a week.
