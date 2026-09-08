@@ -1,5 +1,27 @@
 # r
 
+"
+It's a shitty thing to wish suffering on others.
+
+When you're close to living on the streets, and the people that helped put your mental health into a place that makes that possibility the most likely,
+
+and fully knowing this, they continue to be consistently cruel and abusive, and still refuse to lend a hand.
+
+Then yeah. You're gonna wanna dish some out too.
+
+It's the worst when you're all alone. There is no possible way to start all by yourself with the cost of living as it is.
+
+The guys who started Google? They had help. Lots of it. You'll find many of these successful companies started out with heapfuls of supporters.
+
+Anyway.
+
+It's moot because there is some line, but there is no endpoint that I'm aware of.
+
+And people who are dealing with other people's health conditions need lots of prep time.
+
+I don't really have the time anymore. I'm gonna be on the fucking streets. And can't even keep a car with no address.
+"
+
 <img width="916" height="400" alt="Screenshot_20260907_214133" src="https://github.com/user-attachments/assets/fbaf3f3b-8223-4b2c-948f-d19ecfe33237" />
 
 
