@@ -1,6 +1,31 @@
 # r
 
 "
+
+there are two major forms of homelessness. 
+
+1. Homeless and flat broke.
+
+2. Homeless and struggling. Not broke but can't afford adequate housing without going broke.
+
+The death rate for 1. is substantially higher.
+
+Trying to make other people broke, who already are in bad circumstances is foul and evil. 
+
+It's putting them in the first category. It's murdering them.
+
+people with bad circumstances don't throw away money. OK money is used to help improve their lives not to destroy odds of improving it.
+
+We dont waste it on damage.
+
+Money solves problrms. 
+
+gucking around is unacceptable.
+
+No destination. no endpoint. Wandering unacceptable.
+"
+
+"
 It's a shitty thing to wish suffering on others.
 
 When you're close to living on the streets, and the people that helped put your mental health into a place that makes that possibility the most likely,
