@@ -1,5 +1,20 @@
 #
 
+"Girl here got a job making $200 a week. Super excited about it. 
+
+It was a super competitive job too. 100s of applicants. For $200 a week.
+
+Manager said she had "trouble with people arriving to work on time."
+
+HMMM. Wonder why?
+
+This is your typical part time job of which 90% of jobs are.
+
+Guess who they are gonna beg for rides to work since they can't afford a car?
+
+Ya.
+"
+
 "Empty too many cups you may just find theres nothing left to fill."
 
 ---
