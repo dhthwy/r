@@ -10,7 +10,15 @@ Sure they might work. Can't pay a single bill tho.
 
 But they steal, and beg for money constantly.
 
-Those aren't roommates. Those are leeches."
+Those aren't roommates. Those are leeches.
+
+The most damning thing about them though,
+
+They're vexatious lyin snitches.
+
+Always runnin to the cops whenever they can't steal or beg for your money.
+
+And you remind me of them ;)"
 
 ---
 
