@@ -1,5 +1,19 @@
 #
 
+"THing is. Girl was given two cars.
+
+She gave them both away to her boyfriends.
+
+And none of her bf's have ever paid a bill in their life.
+
+Sure they might work. Can't pay a single bill tho.
+
+But they steal, and beg for money constantly.
+
+Those aren't roommates. Those are leeches."
+
+---
+
 "Over time, I've grown to understand that NO ONE gives a fuck how I am doing- good or bad.
 
 Whether I'm dead or alive.
