@@ -1,5 +1,20 @@
 #
 
+"I don't smoke anymore. It's been over a year.
+
+Wasted a lot of money on that nasty.
+
+But that's the only good thing.
+
+I'm unable to organize... If I can't do it for myself, forget organized thinking anywhere else.
+
+Like I said. BRAIN DAMAGE.
+
+When you thought you finally found a friend all your life then realized, after many years, it was a farce.
+
+Suitable ending for me. Eh?
+"
+
 "Do I feel bad for being an asshole myself?
 
 Sometimes. But then I remember that no one gave a damn for me :)
