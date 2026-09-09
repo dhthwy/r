@@ -1,5 +1,9 @@
 #
 
+https://www.youtube.com/shorts/yTGwsp5it30
+
+---
+
 https://youtu.be/hhfx1MdjnZc?t=231
 
 "Either way, even if I knew everything I needed to know, the answer will always be the same- no.
