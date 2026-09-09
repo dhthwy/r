@@ -1,5 +1,24 @@
 #
 
+"Do I feel bad for being an asshole myself?
+
+Sometimes. But then I remember that no one gave a damn for me :)
+
+No one put themselves in my shoes and stepped up. Ever.
+
+When you remember that, it's all fair! Anything goes.
+
+Right? All is fair? Anything goes? Isn't that the game you play?
+
+Since when did we have a conversation? A real one?
+
+Oop. Never.
+
+Always rejected me. No matter what the cost.
+"
+
+---
+
 <img width="471" height="547" alt="Screenshot_20260908_225036" src="https://github.com/user-attachments/assets/2da676be-3a2e-4663-bd2e-4aae8f0d1a7c" />
 
 <img width="1053" height="594" alt="Screenshot_20260908_225014" src="https://github.com/user-attachments/assets/9c097089-1d00-45b0-8580-59ada35b0564" />
