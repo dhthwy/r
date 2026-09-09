@@ -1,5 +1,14 @@
 #
 
+"Either way, the answer will always be the same- no.
+
+because you always tore me down whenever I tried to step up.
+
+because there was always something more important to do.
+"
+
+---
+
 "I don't smoke anymore. It's been over a year.
 
 Wasted a lot of money on that nasty.
