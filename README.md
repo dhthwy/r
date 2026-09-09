@@ -8,6 +8,10 @@ But that's the only good thing.
 
 I'm unable to organize... If I can't do it for myself, forget organized thinking anywhere else.
 
+Coding? LOL. No one wants retard work. And AI has changed it completely. More AI, less jobs for people.
+
+Fine. There must be something else right? Except unable to organize.
+
 Like I said. BRAIN DAMAGE.
 
 When you thought you finally found a friend all your life then realized, after many years, it was a farce.
