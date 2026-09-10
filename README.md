@@ -1,5 +1,14 @@
 #
 
+"You ever take an inventory of everything you own?
+
+I found that I sometimes buy shit because I forgot I already have it!
+
+As much as I prefer having less. If you're handy, you need to accumulate tools and materials.
+
+But of course, I'm struggling to do it. I'm still a walking piece of bruised and bleeding meat.
+"
+
 https://www.youtube.com/shorts/yTGwsp5it30
 
 ---
