@@ -1,12 +1,31 @@
 #
 
-"You ever take an inventory of everything you own?
+"
+You know how they say you only talk out your butt?
 
-I found that I sometimes buy shit because I forgot I already have it!
+mmhmm.
 
-As much as I prefer having less. If you're handy, you need to accumulate tools and materials.
+Too bad your word never had any worth.
 
-But of course, I'm struggling to do it. I'm still a walking piece of bruised and bleeding meat.
+The difference is actually super simple.
+
+Them: 'You wanna connect?' You: 'Hell yeah!'
+
+And you actually did so!
+
+But for me? It was always bullshit.
+
+Whenever I'm nearby it's 'Nah, I'm bizzy.'
+
+I remember one with an image of a guy and his dog sitting on his laptop while looking at someone else thru a computer screen.
+
+This post was the 'ideal.' Meaning, this is the best way with you remaining only on the computer screen!
+
+I remember everything. Light the night my ass.
+
+And you tear me down full knowing I'm trying to get my p's into safe housing. They're hesitant cause they're scared.
+
+It's nice. Lovely with no help. Only thing I have is a buncha corrupt departments and people trying to fuck me up.
 "
 
 https://www.youtube.com/shorts/yTGwsp5it30
