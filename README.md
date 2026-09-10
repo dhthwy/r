@@ -1,5 +1,8 @@
 #
 
+<img width="288" height="360" alt="cat-dog-2215586554" src="https://github.com/user-attachments/assets/5651183c-517c-46e2-bfd3-d219dff0f5ec" />
+
+
 "'Ideal' is the status quo.
 
 I remember.
