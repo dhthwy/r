@@ -1,5 +1,15 @@
 #
 
+<img width="480" height="640" alt="IMG_0457" src="https://github.com/user-attachments/assets/a00b47a6-10b0-4439-bade-a14d082efece" />
+
+" At least my marigolds are beginning to flower. Something gave me a flower.
+
+Wind knocked most of them down, but they just said 'nice, more roots for me to grow.'
+"
+
+
+---
+
 https://www.youtube.com/shorts/ZDPTfMKuA8s
 
 "Interesting how your ideal has been exactly THAT since your ideal was made known.
