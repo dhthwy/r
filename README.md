@@ -1,5 +1,19 @@
 #
 
+"'Ideal' is the status quo.
+
+I remember.
+
+You gave that two thumbs up.
+
+What changed since then? Not a god damn thing.
+
+Change happens via action not words.
+
+Change you reserve for those you actually give a damn for.
+
+Everyone else simply gets played. Whatever sick games you got to do to make it wet for your people."
+
 "
 You know how they say you only talk out your butt?
 
