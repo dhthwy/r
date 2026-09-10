@@ -1,5 +1,15 @@
 #
 
+"Interesting how your ideal has been exactly THAT since your ideal was made known.
+
+Thru a screen. No actual communication.
+
+Just you with your people.
+
+You did it!"
+
+---
+
 <img width="288" height="360" alt="cat-dog-2215586554" src="https://github.com/user-attachments/assets/5651183c-517c-46e2-bfd3-d219dff0f5ec" />
 
 
