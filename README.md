@@ -1,5 +1,7 @@
 #
 
+https://www.youtube.com/shorts/ZDPTfMKuA8s
+
 "Interesting how your ideal has been exactly THAT since your ideal was made known.
 
 Thru a screen. No actual communication.
