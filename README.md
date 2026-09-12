@@ -1,5 +1,13 @@
 #
 
+"
+https://www.youtube.com/shorts/6eY1SIM2mpA
+
+Today I learned that ants protect aphids.
+
+So ants have been battling my ladybugs.
+"
+
 "I'm #googol or 10^100
 
 :D
