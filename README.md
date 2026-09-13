@@ -1,5 +1,9 @@
 #
 
+"Same things that inhibited me still exist anyhow."
+
+---
+
 "So, IMO, being kind and generous to everyone by default is the wisest way to be.
 
 That waitress, that dumpster worker, may very well be forming relationships. They may be a great person who moves up into something powerful.
