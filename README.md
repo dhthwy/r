@@ -1,5 +1,18 @@
 #
 
+"I reserve 'penis' for those who choose temporary pleasure over something that is harder, doesn't immediately benefit, but could resolve issues that improve quality of life in the future.
+
+The immediate gratification thing is common and doesn't usually set you up well in the long term.
+
+My p's are the same type. They never thought ahead. Only did what was best for them at some moment.
+
+However, you can't tell someone 'oh, you're how old? Never done this and that. And you haven't been out in decades? YOu need to fix that? Too bad, that's just immediate gratification talking.
+
+That's not some 'immediate gratification' need that needs fixing. That's a mental health crisis.
+
+No different than being stranded on some deserted island for decades. You can't just leave and mingle normally with civilization and expect to succeed.
+"
+
 "That plus search sux.
 
 The days of swimming thru spammy search results...
