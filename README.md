@@ -1,5 +1,19 @@
 #
 
+<img width="844" height="280" alt="Screenshot_20260912_234519" src="https://github.com/user-attachments/assets/6ec4e651-b12e-483a-adeb-3d72f79dea53" />
+
+"AI is always screwing me over in some way, but I use it anyway cause it has access to knowledge that I don't have.
+
+It is best in expert hands so you know when it is screwing you :P
+
+Wouldn't it be so much better to use it for actual money making chit instead of gardening chit?
+
+yaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa.
+"
+
+
+---
+
 https://www.youtube.com/shorts/PzJ5r4TBKfY
 
 ---
