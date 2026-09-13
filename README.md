@@ -1,5 +1,14 @@
 #
 
+"That plus search sux.
+
+The days of swimming thru spammy search results...
+
+Depending on what im researching, I usually filter by appending site:edu to my search terms, but that doesn't work well for many things.
+
+I don't miss them. AI is generally pretty good at filtering chit for me.
+"
+
 <img width="844" height="280" alt="Screenshot_20260912_234519" src="https://github.com/user-attachments/assets/6ec4e651-b12e-483a-adeb-3d72f79dea53" />
 
 "AI is always screwing me over in some way, but I use it anyway cause it has access to knowledge that I don't have.
