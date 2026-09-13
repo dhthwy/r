@@ -1,5 +1,20 @@
 #
 
+"Sometimes simply having a friend to hold you accountable/help you sort thru issues should be enough.
+
+For me, it has made me retarded in many ways. I've already tried... there is no way for me to get anything better than trash work with my mental health as it is.
+
+Trash work doesn't put a roof over your head though. There are many employed who lack shelter. That's why they're called trash jobs.
+
+Part time $10 an hr type of shit. The vast majority of jobs in the USA are trash like that.
+
+It's more who you know than what you know. College gets you in the door to meet people and form relationships with- that doesn't work well when distance learning.
+
+Building relationships is far more valuable than some learnin you're just going to immediately forget.
+"
+
+---
+
 "I reserve 'penis' for those who choose temporary pleasure over something that is harder, doesn't immediately benefit, but could resolve issues that improve quality of life in the future.
 
 The immediate gratification thing is common and doesn't usually set you up well in the long term.
