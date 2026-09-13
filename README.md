@@ -1,5 +1,14 @@
 #
 
+"So, IMO, being kind and generous to everyone by default is the wisest way to be.
+
+That waitress, that dumpster worker, may very well be forming relationships. They may be a great person who moves up into something powerful.
+
+People will always remember who was kind to them.
+
+You never know how that might be repaid.
+"
+
 "Sometimes simply having a friend to hold you accountable/help you sort thru issues should be enough.
 
 For me, it has made me retarded in many ways. I've already tried... there is no way for me to get anything better than trash work with my mental health as it is.
