@@ -1,6 +1,23 @@
 #
 
-"Same things that inhibited me still exist anyhow."
+""I've tried many times to fix problems.
+
+But there was always resistance.
+
+Major rejections.
+
+Thing is, we don't know what we don't know.
+
+Therefore I must assume that there were reasons for these rejections.
+
+And I don't see how anything has changed for the better.
+
+Kindness? Don't see it. The past certainly was not kind. And if there hasn't been any change, then how is it any different now?
+
+Doing the same thing over and over again with the same result but expecting different results is the definition of stupidity.
+
+Maybe that's another reason why I feel so retarded.
+"
 
 ---
 
