@@ -1,5 +1,19 @@
 #
 
+"Available Credit:
+
+$12,100.00 of $4,100.00
+
+On the plus side, I just asked for a CLI and got 8k.
+
+Imma paper tiger.
+
+But that's nothing compared to these high rollas with 100k credit lines and total credit lines in the million.
+
+I recall one guy got denied a card, so he showed them a photo with him, his plane, and a middle finger."
+
+---
+
 "Bottom line: it results in loss of sanity, which leads to things like retard.
 
 Also continuous injuries which never heal on their own. Maybe the first one does, and the second one, but keep stabbing wounds? At some point it gets too deep. The brain learns not to touch a hot burner.
