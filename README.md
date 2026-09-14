@@ -1,5 +1,14 @@
 #
 
+"I'm always feeling sick and dizzy these days.
+
+It may very well be too late for me.
+
+can't be sick when you're locally surrounded by snakes who take advantage of it.
+
+Thanks for the help with that.
+"
+
 "
 Cognitive dissonance is a real.
 
