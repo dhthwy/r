@@ -1,5 +1,22 @@
 #
 
+"Starting the garden was probably stupid idea.
+
+I'm just trying to break even at this point.
+
+I don't have the space for all this extra shit.
+
+There's loads of other things I need to put my little bit usable energy into.
+
+If I don't fix my car door soon, I won't be able to get in at all.
+
+Having a healthy body is blessed.
+
+Mine isn't healthy.
+
+Not since my ear got fucked up and made me perm dizzy.
+"
+
 "I'm always feeling sick and dizzy these days.
 
 It may very well be too late for me.
