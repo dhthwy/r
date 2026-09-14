@@ -1,5 +1,12 @@
 #
 
+<img width="480" height="640" alt="IMG_0464" src="https://github.com/user-attachments/assets/ca565fe5-777d-45bb-9d96-9afe229f8492" />
+
+
+"These people drink a gallon of milk daily. I put that shit to use for my transplants for da fall crop."
+
+---
+
 "Starting the garden was probably stupid idea.
 
 I'm just trying to break even at this point.
