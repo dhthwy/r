@@ -8,7 +8,7 @@ Major rejections.
 
 Thing is, we don't know what we don't know.
 
-Therefore I must assume that there were necessary reasons for these rejections.
+Therefore I must assume that there were necessary reasons for these rejections. That's how it's always been. Same issue. DOn't know shit. Massive rejections. Tried to gain knowledge. Get rejected. Rinse. Repeat.
 
 And I don't see how anything has changed for the better.
 
