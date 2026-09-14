@@ -1,5 +1,15 @@
 #
 
+"Bottom line: it results in loss of sanity, which leads to things like retard.
+
+Also continuous injuries which never heal on their own. Maybe the first one does, and the second one, but keep stabbing wounds? At some point it gets too deep. The brain learns not to touch a hot burner.
+
+The outcome is much like rabies."
+
+https://www.youtube.com/shorts/wRqOc3-di0A
+
+---
+
 ""I've tried many times to fix problems.
 
 But there was always resistance.
