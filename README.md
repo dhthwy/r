@@ -16,7 +16,7 @@ Kindness? Don't see it. The past certainly was not kind. And if there hasn't bee
 
 Doing the same thing over and over again with the same result but expecting different results is the definition of stupidity.
 
-Maybe that's another reason why I feel so retarded.
+Maybe that's another reason why I feel so retarded: Hope from the heart would love to fix it, but my brain knows I'll just get the same result.
 "
 
 ---
