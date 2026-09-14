@@ -1,5 +1,12 @@
 #
 
+"I imagine you get your milk straight from the cow. Hand milked right in front of you into glass.
+
+No one wants to be negative. It's hard not to be when you're getting the shit kicked out of you and your body is too messed up to do much about it ;)
+"
+
+---
+
 <img width="480" height="640" alt="IMG_0464" src="https://github.com/user-attachments/assets/ca565fe5-777d-45bb-9d96-9afe229f8492" />
 
 
