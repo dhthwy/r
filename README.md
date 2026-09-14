@@ -1,16 +1,24 @@
 #
 
-"Available Credit:
+"
+Cognitive dissonance is a real.
 
-$12,100.00 of $4,100.00
+So if one can't fix a problem, then someone else has to.
 
-On the plus side, I just asked for a CLI and got 8k.
+What if it never gets fixed.
 
-Imma paper tiger.
+What does that mean?
 
-But that's nothing compared to these high rollas with 100k credit lines and total credit lines in the million.
+So when people claim they're on your side but refuse to help with little problems, then they aren't really on your side are they?
 
-I recall one guy got denied a card, so he showed them a photo with him, his plane, and a middle finger."
+Can't claim neutral after past efforts caused damage.
+
+Hitler wasn't gonna get the chance to say 'Oh, things have changed now! It's not like that anymore.'
+
+See? Lots of time. No changes. What did remain? Negative impact.
+
+There comes a point when rabies becomes symptomatic.
+"
 
 ---
 
