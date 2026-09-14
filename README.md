@@ -8,7 +8,7 @@ Major rejections.
 
 Thing is, we don't know what we don't know.
 
-Therefore I must assume that there were reasons for these rejections.
+Therefore I must assume that there were necessary reasons for these rejections.
 
 And I don't see how anything has changed for the better.
 
