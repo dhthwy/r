@@ -1,5 +1,37 @@
 #
 
+
+<img width="320" height="637" alt="Screenshot_20260914_171922" src="https://github.com/user-attachments/assets/c947fb1f-b7f2-4b15-a522-0ddb00e5e117" />
+
+"Me before back breaking hard labor."
+
+<img width="640" height="480" alt="dgenesnake" src="https://github.com/user-attachments/assets/fed3fb56-acaa-4ee3-aa1e-2e97a11a7d51" />
+
+"2 months of back breaking hard labor."
+
+
+<img width="183" height="338" alt="old2" src="https://github.com/user-attachments/assets/923e2f18-1119-4fdc-8a91-8608054f2ef6" />
+
+"1 year of back breaking hard labor."
+
+"Hard labor didn't just develop physically. It helped clear my foggy head as well.
+
+I became physically able, and mentally clear headed.
+
+I was happy when playing sports... other than that, not so much.
+
+Too many years spent like that first pic stunted my growth in every single way.
+
+The only time I've ever felt like I belonged was when I was playing sports.
+
+The computer ruined my life.
+
+That feeling of 'outsider' was too much. The one kicked to the curb.
+
+Sports was the only times when I didn't feel that way. We played for fun, and had fun together."
+
+---
+
 "I imagine you get your milk straight from the cow. Hand milked right in front of you into glass.
 
 No one wants to be negative. It's hard not to be when you're getting the shit kicked out of you and your body is too messed up to do much about it ;)
