@@ -6,6 +6,8 @@ It may very well be too late for me.
 
 can't be sick when you're locally surrounded by snakes who take advantage of it.
 
+when you're already trying to provide care for elderly who are far worse.
+
 Thanks for the help with that.
 "
 
