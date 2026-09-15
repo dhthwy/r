@@ -1,5 +1,20 @@
 #
 
+"And some cog dis. isn't so bad as long as you catch up now and then. Sometimes it's necessary. That's understood.
+
+But you can't let a severe form go on for years and years while you provide preferential treatment to everyone else.
+
+Especially when the pref treatment resulted in real negative impact. All that did was turned up the severity knob to the max.
+
+It's for that reason that I required 1v1. No cog dis. No doubts about it. 1v1 only and with copious time to allow for things to settle. No external influencers anywhere near. Not repeating the 'copious time with everyone else first. Maybe later if there's any time left.'
+
+Not settling for anything less you provide everyone else on a regular basis after all that loss.
+
+That you thought it was cool to keep me on the screen after knowing that it was the screen that destroyed me in the first place was the cruelest knowingly thing anyone has ever done. And you still haven't done jack shit except show me how everyone else is more important.
+
+You think I believe you give a damn for me? LOL.
+"
+
 "Severe cognitive dissonance has always been the issue.
 
 When everyone else knows everything, and you're left to piece together the scraps that's gonna happen.
