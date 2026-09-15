@@ -1,5 +1,15 @@
 #
 
+"Severe cognitive dissonance has always been the issue.
+
+When everyone else knows everything, and you're left to piece together the scraps that's gonna happen.
+
+And that's my issue with other people. Not everyone is capable of solving that, but some can and won't. Some can, won't, and worked to continue isolation.
+
+That's a fact. Whether that is still true is irrelevant.
+
+The only thing real, where cognitive dissonance wasn't in play, was history's teachings. These were the 'this is how it really is' teachings that had real life impact - not in your own head cognitive dissonance. Unfortunately, every single teaching was highly destructive.
+"
 
 <img width="320" height="637" alt="Screenshot_20260914_171922" src="https://github.com/user-attachments/assets/c947fb1f-b7f2-4b15-a522-0ddb00e5e117" />
 
