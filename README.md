@@ -1,5 +1,17 @@
 #
 
+"
+As I approach the end of my 40s.
+
+I know if I ever do find a friend they will slap me up n down 'wtf you let someone make you feel that way about your life and ruined your whole 40s too? Wtf is wrong with you?'
+
+How many times did I see some BS about 'i said yes but they said no.'
+
+That's what you called a team.
+"
+
+"
+
 "Always best to be honest and upfront when it comes to important things, especially when people are depending on you. Lying, bullshitting, etc just leads to loss of trust, and loss of trust is the death knell for any type of healthy relationship.
 
 Life is not a game of one.
