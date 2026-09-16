@@ -6,7 +6,7 @@ At least you had some great years and oodles and noodles of time.
 
 Maybe things could've been even better if everyone were kind.
 
-But my invariant still holds. It's either 1 or no because history has taught me enough. Maybe after that, things can change, when cog dis. doesn't reign supreme."
+But my invariant still holds. It's either 1 or no because history has taught me enough. Maybe after that, things can change, when cog dis. doesn't reign supreme, when I've been given the chance to actually heal."
 
 "
 As I approach the end of my 40s.
