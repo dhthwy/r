@@ -1,5 +1,18 @@
 #
 
+"Always best to be honest and upfront when it comes to important things, especially when people are depending on you. Lying, bullshitting, etc just leads to loss of trust, and loss of trust is the death knell for any type of healthy relationship.
+
+Life is not a game of one.
+
+Even those without much still have significant history and impact on other people.
+
+For that reason, the wise default to kindness and respect. Both of these things are what most people expect from others by default, and most people repay by giving you that same kind and respect in return. The default behavior isn't earned- it's expected from any civilized person.
+
+I for one am not the revenge type, but anyone can get there if you push them hard enough as I have been.
+"
+
+---
+
 "And some cog dis. isn't so bad as long as you catch up now and then. Sometimes it's necessary. That's understood.
 
 But you can't let a severe form go on for years and years while you provide preferential treatment to everyone else.
