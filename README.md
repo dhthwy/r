@@ -11,6 +11,10 @@
 Fast forward years.. oops.. they needed a consoling and now their brains got blown out.
 
 Some really bad shit. Surrounded by bad people... not a single decent fucking person.
+
+All gutter shit. ALL gutter people. All around me. GONNA WIND UP GUTTER TOO. IN JAIL. IN PRISON. Then I'll say... I FUCKIN TOLD YA SO.
+
+Now why weren't you there for me when I fuckin needed you to help me AVOID the worst case?
 "
 
 "
