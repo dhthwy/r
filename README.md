@@ -1,5 +1,23 @@
 #
 
+"
+It's either I
+
+a) leave on my own and let my elderly p's fend for themselves against wolves. If I try to say anything- i'll have false charges brought up- and likely felony. Sadly the system is designed to support vexatious litigants, as you well know.
+
+b) same as a) except I'll be able to help my p's get into a better environment where they can receive help from caregivers aside from me, and have help defending against the false charges, and I won't be leaving my mom to bullies.
+
+So add up the cost to defend yourself. The only family member that would've stepped up to help is dead.
+
+There are people literally trying to kill me.
+
+I was strangled last year. Got pics of all the bruises on my throat. Almost couldn't swallow for a week.
+
+But the way the system is designed- I'll be put in jail. Just like I was placed there for defending my property and my p's in the first fuckin place.
+
+FUCK THE LAW.
+"
+
 "Must be nice having a support system.
 
 Doesn't necessarily mean money- simply people you can go to for advice or kick ideas around with.
