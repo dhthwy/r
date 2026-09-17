@@ -1,5 +1,18 @@
 #
 
+"That would've been an excellent test.
+
+'Hey, a friend needs a little consoling. Just gonna say hi and have a few words. They dropped everything for me to do just that.'
+
+'NOooo. YOu can't do that. We're done forever if you do!'
+
+'Oh.. my hero. You passed the test.'
+
+Fast forward years.. oops.. they needed a consoling and now their brains got blown out.
+
+Some really bad shit. Surrounded by bad people... not a single decent fucking person.
+"
+
 "
 I never wanted to be a jerk.
 
