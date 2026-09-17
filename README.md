@@ -1,5 +1,12 @@
 #
 
+"Things like moving, etc. Potential major issues related to these things.
+
+If I was doing better, these things would be far easier and less treacherous.
+
+I don't have much of a leg to stand on. TOo sick for too long. Too many gremlins.
+"
+
 "At no point did I say to totally ditch other people.
 
 The problem is: other people's history was one of hinder than anything else. At least against me.
