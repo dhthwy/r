@@ -16,6 +16,12 @@ I was strangled last year. Got pics of all the bruises on my throat. Almost coul
 But the way the system is designed- I'll be put in jail. Just like I was placed there for defending my property and my p's in the first fuckin place.
 
 FUCK THE LAW.
+
+FUCK DIRTY COPS.
+
+FUCK DIRTY JUDGES.
+
+What did I fucking say. I'm gonna end up in prison. I'm not gonna keep tolerating this shit FROM CORRUPT MOTHERFUCKING CORRUPT LAW.
 "
 
 "Must be nice having a support system.
