@@ -1,5 +1,11 @@
 #
 
+"Nearly 100Gs in credit.
+
+Doesn't mean jack though. Paper tiger isn't a good thing."
+
+---
+
 "When I first started feeling better, I used to love getting out there and doing things.... I had all these tools and finally got the chance to use them.
 
 Muscles I hadn't used in years got awoken. I was covered in dust but my whole body was so fatigued I couldn't even move...
