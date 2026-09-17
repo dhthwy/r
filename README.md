@@ -1,5 +1,22 @@
 #
 
+"At no point did I say to totally ditch other people.
+
+The problem is: other people's history was one of hinder than anything else. At least against me.
+
+That's the reason.... it could've been fixed by unblacklisting basic comms.
+
+I tried that. Even said how to fix that. I mean, it's not like my email is unknown.
+
+To this very day, it's still in the black.
+
+I have reasons for requiring. And it's not to be greedy.
+
+Only after fixes are made can there be progress.
+
+I'm not even certain what my capabilities will be anyway.
+"
+
 "
 It's not even the best.
 
