@@ -1,5 +1,14 @@
 #
 
+"Must be nice having a support system.
+
+Doesn't necessarily mean money- simply people you can go to for advice or kick ideas around with.
+
+Or people you can lean on with 'hey, am I going crazy or is this really batshit? Htf do I handle this?'
+
+Just talk to yourself... Everyone knows I've done nothing but talk to myself for many years. You can tell.
+"
+
 "Nearly 100Gs in credit.
 
 Doesn't mean jack though. Paper tiger isn't a good thing.
