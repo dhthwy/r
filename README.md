@@ -1,5 +1,13 @@
 #
 
+https://www.youtube.com/shorts/CU4Q7FXaHp8
+
+"Most likely my ending.
+
+You can only take so much.
+
+fucking filthy world."
+
 "you know god damn well the 'law' is on the dirty side. they don't give a fuck who they hurt, kill, or lives they ruin.
 
 IT'S A MONEY MAKING BUSINESS.
