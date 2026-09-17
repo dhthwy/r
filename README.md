@@ -1,5 +1,9 @@
 #
 
+"And no, the "sex" reference had nothing to do with you. That was something some people used to do a long time ago before spam was even illegal."
+
+---
+
 https://www.youtube.com/shorts/CU4Q7FXaHp8
 
 "Most likely my ending.
