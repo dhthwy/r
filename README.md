@@ -1,5 +1,32 @@
 #
 
+"When I first started feeling better, I used to love getting out there and doing things.... I had all these tools and finally got the chance to use them.
+
+Muscles I hadn't used in years got awoken. I was covered in dust but my whole body was so fatigued I couldn't even move...
+
+so I fell asleep like that, with some type of dust on my face.
+
+Next day... face covered in pimples. Every millimeter of it.
+
+Actually, wound up spending more money than I got.
+
+Gone are the days when I could sell sex to horny middle aged men in my sleep.
+
+It would be awesome to start a business, and if I used some credit, that would help,
+
+but if it doesn't work out?
+
+If it works you fly? If it doesn't you tank? Wind up on the streets?
+
+Not everyone wins. Some end up on the streets or dead.
+
+If you lack any sort of support system - that is very common.
+
+So risk is taken very seriously.
+"
+
+---
+
 https://youtu.be/cXturvXl0m8?t=287
 
 "I wish I could be more like that guy. A true hustler."
