@@ -1,5 +1,10 @@
 #
 
+https://youtu.be/cXturvXl0m8?t=287
+
+"I wish I could be more like that guy. A true hustler."
+
+---
 
 "Everything hinges on whether I get flushed down the gutter toilet.
 
