@@ -1,5 +1,16 @@
 #
 
+"When people in da gutter speak of being flushed down the gutter toilet. They're not talkin abooot jobby jobs.
+
+They're talkin about other motherfuckers trying to ruin or kill them, literally.
+
+And corrupt motherfucking cops and their crony judges who enjoy supporting it.
+
+Half the people working for the justice dept probably belong behind bars themselves.
+"
+
+---
+
 "And no, the "sex" reference had nothing to do with you. That was something some people used to do a long time ago before spam was even illegal."
 
 ---
