@@ -1,5 +1,13 @@
 #
 
+"you know god damn well the 'law' is on the dirty side. they don't give a fuck who they hurt, kill, or lives they ruin.
+
+IT'S A MONEY MAKING BUSINESS.
+
+They love this shit. It's what they get paid for!
+
+You know it better than anyone."
+
 "
 It's either I
 
