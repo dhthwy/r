@@ -2,7 +2,9 @@
 
 "Nearly 100Gs in credit.
 
-Doesn't mean jack though. Paper tiger isn't a good thing."
+Doesn't mean jack though. Paper tiger isn't a good thing.
+
+I couldn't spend it all even if I wanted to. I'd get shut down at 50% or less."
 
 ---
 
