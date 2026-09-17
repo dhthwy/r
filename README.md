@@ -1,5 +1,31 @@
 #
 
+"
+I never wanted to be a jerk.
+
+But the type of shit you do makes me want to kill some shit.
+
+You knew I was in a bad spot. You knew I was in all kinds of bad spots.
+
+No fuckin schooling here with this type of shit going on. No way in hell.
+
+Maybe someone to help me sort thru some issues, help me find a way out without blowing myself up and ruining the rest of my life?
+
+I wasn't fucking kidding.
+
+Maybe it should've started with a hello rather than blacklisting.
+
+Cause hello was all I expected.
+
+Think I was gonna whine and cry cause I couldn't get more than a convo?
+
+I understood you had plans.
+
+The longer, the less there is of me... and less worth.
+
+That bleed needed to stop years ago. That support. So I could get thru it far ahead, instead of going down further and further.
+"
+
 "Things like moving, etc. Potential major issues related to these things.
 
 If I was doing better, these things would be far easier and less treacherous.
