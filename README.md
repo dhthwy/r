@@ -1,5 +1,17 @@
 #
 
+https://www.notablelife.com/this-google-employee-lives-in-a-truck-on-company-property-and-saves-90-of-his-income/
+
+"My future.
+
+Except it's extremely difficult if not impossible to find insurance without an address.
+
+I don't like burning money.
+
+What I spend it on has to be for something good."
+
+---
+
 "The gig economy is super competitive with so many people needing 2 or 3 jobs just to afford essentials. More than two part-time jobs doesn't really fit too well.
 
 So what then to fill in the gaps? gig-anytime-you-want work.
