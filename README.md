@@ -1,5 +1,20 @@
 #
 
+"Your ears aren't just for hearing.
+
+You can't just throw in a hearing-aid if you break one.
+
+I'd rather lose an eye than an ear.
+
+Balance problems will wreck your life. You can't do jack if you can't stand up or you can't see because your eyes keep rolling around because your brain thinks you're spinning.
+
+So, everyone should be wearing ear protectors at all times.
+
+Maybe my brain has learned to compensate for my ear. Took long enough. 10 fucking years.
+
+But I'm still not a 100%.
+"
+
 "
 A blast can cause several things:
 
