@@ -1,5 +1,10 @@
 #
 
+"Oh I forgot, there's a fuel odor I haven't been able to fix.
+
+Yeah, probably gotta scratch that idea. No one wants their items smellin like gas.
+"
+
 "If I can do my fix-my-damn-car project, it may be worthwhile to do deliveries.
 
 not a terrible way to break the ice.
