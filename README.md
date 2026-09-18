@@ -10,7 +10,7 @@ Bad brain = bad body = bad life = bad job
 
 I busted my balls. Lived off oodles n noodles and hot dogs for years.
 
-Had no money for anything. But killed myself for the little bit I got.
+Had no money for anything except for a car and gross housing. But killed myself for the little bit I got.
 
 It was dumb. I can't go back down that road again.
 
