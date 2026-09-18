@@ -1,5 +1,24 @@
 #
 
+"It's mental health really.
+
+Mine went totally splat.
+
+Slapping my own face around a bit doesn't help.
+
+Bad brain = bad body = bad life = bad job
+
+I busted my balls. Lived off oodles n noodles and hot dogs for years.
+
+Had no money for anything. But killed myself for the little bit I got.
+
+It was dumb. I can't go back down that road again.
+
+At least not without a there's-a-way-out plan.
+"
+
+---
+
 "When people in da gutter speak of being flushed down the gutter toilet. They're not talkin abooot jobby jobs.
 
 They're talkin about other motherfuckers trying to ruin or kill them, literally.
