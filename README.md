@@ -1,5 +1,9 @@
 #
 
+https://www.youtube.com/shorts/WPqTB3Lnza4
+
+"me 24/7 RBF."
+
 "probably because I'm not low enough, tho with enough costly changes and costly events, that can change quickly.
 
 because my buffer isn't big enough.
