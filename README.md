@@ -1,5 +1,9 @@
 #
 
+https://www.youtube.com/shorts/nZuHsonfHjk
+
+"It is true. It gets stuck like that."
+
 https://www.youtube.com/shorts/WPqTB3Lnza4
 
 "me 24/7 RBF."
