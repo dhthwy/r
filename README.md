@@ -1,5 +1,18 @@
 #
 
+"Everyone else has a huge head start.
+
+If my mind was operating pre-2020, if I didn't get so low, I'd be in far better shape.
+
+It's called being left behind.
+
+Words aren't any consolation.
+
+When I killed myself working 60 hours a week, for pennies, the only thing that kept me going was improving myself to the point where I could get the hell out of dodge. I wanted to move back to CT as a much better person.
+
+Almost. Breaking your ear is no joke. Those in the mil should be well aware of what happens when your ears get damaged from explosions, etc.
+"
+
 https://www.notablelife.com/this-google-employee-lives-in-a-truck-on-company-property-and-saves-90-of-his-income/
 
 "My future.
