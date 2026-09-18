@@ -1,5 +1,24 @@
 #
 
+"
+A blast can cause several things:
+
+Immediate ringing (tinnitus) — often a high-pitched tone or hiss. It may disappear in minutes or hours, persist for days, or become permanent.
+Temporary hearing loss/muffling — sounds may seem distant or as though the ears are plugged. Very loud sound temporarily disrupts the sensory hair cells in the inner ear.
+Permanent hearing loss — sufficiently intense pressure/noise can permanently destroy those hair cells. Humans don't regenerate them.
+Ruptured eardrum — a strong pressure wave can tear the tympanic membrane. This may cause sudden pain, hearing loss, bleeding or drainage from the ear.
+Middle-ear injury — the tiny ossicles that transmit sound can be damaged or displaced.
+Inner-ear injury — extremely intense blasts can damage the cochlea and sometimes the balance organs, producing hearing loss, tinnitus, dizziness or vertigo.
+
+Interestingly, the eardrum isn't necessarily the most important injury. A ruptured eardrum can often heal, whereas microscopic damage to the cochlea can leave permanent hearing loss or tinnitus even when the eardrum looks completely normal.
+
+---
+
+I learned the hard way. Don't ever work somewhere that's gonna destroy your body.
+
+It isn't worth a lifetime of damage.
+"
+
 "Everyone else has a huge head start.
 
 If my mind was operating pre-2020, if I didn't get so low, I'd be in far better shape.
