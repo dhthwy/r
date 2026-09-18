@@ -1,5 +1,12 @@
 #
 
+"The gig economy is super competitive with so many people needing 2 or 3 jobs just to afford essentials. More than two part-time jobs doesn't really fit too well.
+
+So what then to fill in the gaps? gig-anytime-you-want work.
+
+When you struggle to find things you can actually do. lol.
+"
+
 "Oh I forgot, there's a fuel odor I haven't been able to fix.
 
 Yeah, probably gotta scratch that idea. No one wants their items smellin like gas.
