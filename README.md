@@ -12,7 +12,11 @@ Same thing for rents.
 
 The change has happened.
 
-Most of the middle class and lower work to enrich the wealthy by way of inflation."
+Most of the middle class and lower work to enrich the wealthy by way of inflation.
+
+In return they no or substandard housing. Or decent housing but cannot afford essentials. Just forget about the dentist.
+
+Get sick. Die early from lack of funds to care for essential needs."
 
 ---
 
