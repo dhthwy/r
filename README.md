@@ -1,5 +1,34 @@
 #
 
+"So that's what made me go long ago. Getting better. Getting the fuck out.
+
+I was so stupid when I began the change to full time menial work.
+
+I could use the computer. Sure.
+
+But I couldn't understand people. Couldn't communicate. Didn't know a lot of things that you learn from basic interaction.
+
+So everyone considered me a retard, and I could do nothing but accept it.
+
+And because of that, forget any tech. Missing the basics. Didn't fuckin matter what computer skills I had.
+
+Maybe things would be different if I wasn't always alone.
+
+I've said it so many times. I'VE LEARNED IT THE HARD WAY.
+
+BEING ALONE MAKES YOU FUCKING STUPID.
+
+'But you don't need anyone! Just be in your head. Kick ideas around in your own head.
+
+Ask your own damn self if you're crazy.'
+
+Only a jerk says that.
+
+It was no wonder why I was so nervous and scared of school. Nobody wants to go back to fuckin school just to be treated like a retard.
+
+You get so used to being treated like that, you expect it from everything and everyone.
+"
+
 https://www.youtube.com/watch?v=IHLgrxtLnP4&t=216s
 
 "The country has already been bought by the ultra wealthy.
