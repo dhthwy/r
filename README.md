@@ -1,5 +1,30 @@
 #
 
+"I considered renting office space so that I have somewhere I can be when it's super hot or cold outside.
+
+work nights. work/be in an office during the day. nap on a chair for sleep.
+
+But there's still that car insurance issue.
+
+actually https://www.youtube.com/shorts/LovdPUKql4s
+
+renting a closet for a residence would be even better.
+
+See? When there's nothing good that pays bills - stuck in these kinds of situations.
+
+fast-food and similar doesn't pay the bills. Maybe with 3 part-time fast food jobs, which is damn near impossible and makes it a nightmare for management to juggle three shifting work schedules.
+
+as I've said, the vast majority of work is like that. Mostly part-time. Mostly low-paying.
+
+also, you are what you do. Spend too much time doing menial work - your brain becomes menial too!
+
+Now let's say you've got help... you work two jobs. Someone else works two jobs. You both live to save.
+
+Then sure, after some time and with enough hustle, you can get into something better for a good deal without being financially raped by the top raping the bottom.
+"
+
+---
+
 https://www.youtube.com/shorts/Nr_pqIcwj60
 
 "Your ears aren't just for hearing.
