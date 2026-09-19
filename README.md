@@ -1,5 +1,21 @@
 #
 
+https://www.youtube.com/watch?v=IHLgrxtLnP4&t=216s
+
+"The country has already been bought by the ultra wealthy.
+
+Housing? They own it. That's why a 100k house from 10 years ago is now 400k.
+
+Same thing for land.
+
+Same thing for rents.
+
+The change has happened.
+
+Most of the middle class and lower work to enrich the wealthy by way of inflation."
+
+---
+
 "I considered renting office space so that I have somewhere I can be when it's super hot or cold outside.
 
 work nights. work/be in an office during the day. nap on a chair for sleep.
