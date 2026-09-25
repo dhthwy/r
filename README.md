@@ -1,5 +1,34 @@
 # r
 
+"No one was going to help the scapegoat boy.
+
+You know it.
+
+I know it.
+
+They know it.
+
+Even as I pleaded and begged. Bad things would happen to me if you refused that basic thing.
+
+And they did happen.
+
+And still no mercy.
+
+We all know it.
+
+Everyone was hoping I'd die.
+
+It's no different than the slave traders in django.
+
+They held the power. Abused and were cruel with it.
+
+Until the tables turned. Suddenly they get nice.
+
+Exactly how it is. WTF.
+
+Some leader. You really thought this was the best?
+"
+
 "In fact, I probably wouldn't have cared if at least some of y'all treated me well.
 
 You know damn well I begged for proper comms.
