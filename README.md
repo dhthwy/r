@@ -1,6 +1,41 @@
 # r
 
-https://www.biblegateway.com/passage/?search=Isaiah%2049%3A14-21&version=NIV
+```
+14 But Zion said, “The Lord has forsaken me,
+    the Lord has forgotten me.”
+
+15 “Can a mother forget the baby at her breast
+    and have no compassion on the child she has borne?
+Though she may forget,
+    I will not forget you!
+16 See, I have engraved you on the palms of my hands;
+    your walls are ever before me.
+17 Your children hasten back,
+    and those who laid you waste depart from you.
+18 Lift up your eyes and look around;
+    all your children gather and come to you.
+As surely as I live,” declares the Lord,
+    “you will wear them all as ornaments;
+    you will put them on, like a bride.
+
+19 “Though you were ruined and made desolate
+    and your land laid waste,
+now you will be too small for your people,
+    and those who devoured you will be far away.
+20 The children born during your bereavement
+    will yet say in your hearing,
+‘This place is too small for us;
+    give us more space to live in.’
+21 Then you will say in your heart,
+    ‘Who bore me these?
+I was bereaved and barren;
+    I was exiled and rejected.
+    Who brought these up?
+I was left all alone,
+    but these—where have they come from?’”
+
+```
+
 
 "
 “It is easier to forgive an enemy than to forgive a friend.” — William Blake
