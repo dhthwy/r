@@ -1,5 +1,18 @@
 # r
 
+"I know all the blacklisting really came from your fake ass anyhow.
+
+Kindness from y'all is simply a game of acting, which is super easy to do with some words and paint.
+
+Don't you ever look my way for anything.
+
+You have absolutely nothing that I want.
+
+You won't find anything but indescribable hostility. You earned it.
+"
+
+---
+
 https://genius.com/Barry-manilow-mandy-lyrics
 
 "You're not Mandy.
