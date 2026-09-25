@@ -9,6 +9,8 @@ Just for essential shit. Had no plan to go emo. And if I did, then at least you 
 Blocking comms on top of everything else BY DEFAULT is what made me this way in the first place.
 
 It's the withholding of essentials while you damn well knew it was leaving me to rot, screwing me up, and keepin them chains on.
+
+Treat someone poorly then blame them for having a bad attitude. wtf is wrong with your brain.
 "
 
 ---
