@@ -1,5 +1,11 @@
 # r
 
+https://www.goodreads.com/quotes/200381-the-so-called-psychotically-depressed-person-who-tries-to-kill-herself
+
+"You would not understand."
+
+---
+
 ```
 14 But Zion said, “The Lord has forsaken me,
     the Lord has forgotten me.”
