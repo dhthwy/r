@@ -1,5 +1,14 @@
 # r
 
+"I don't care who cares like me.
+
+Everyone has already decided I was the villain.
+
+Treat someone like a villain, you turn them into one.
+
+Society does that all the time - scapegoat - that is what I am.
+"
+
 https://www.goodreads.com/quotes/200381-the-so-called-psychotically-depressed-person-who-tries-to-kill-herself
 
 "You would not understand."
