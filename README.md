@@ -1,5 +1,34 @@
 # r
 
+"About two decades long ago, I knew this business fella from Norway.
+
+He had a big dream. So big it meant everything to him. He dumped much of his savings into it.
+
+One day, he met this other fella online who is from the States. The States fella had the infra to take his dreams from a seedling to real growth.
+
+And for this deal, they really needed to meet, work the bugs out, and get everything signed.
+
+So they made plans. The fella from the States told him, 'I'm available. Hit me up when you're in the states and we'll zipper it up!'
+
+Soon after, the Norway dude flew all the way to the States to do just that.
+
+And the guy from the States? Right before his departure, he told him, “Yes. Let's get it done.”
+
+Then the Norwegian arrived.
+
+And the States dude suddenly ghosted him.
+
+The Norwegian feller knocked knocked knocked. Messaged messaged messaged.
+
+No answer.
+
+Eventually, the States guy returned a message:
+
+“Cancelled. I made other plans with my wife. You'll have to wait.”
+"
+
+---
+
 "I know all the blacklisting really came from your fake ass anyhow.
 
 Kindness from y'all is simply a game of acting, which is super easy to do with some words and paint.
