@@ -25,6 +25,24 @@ No answer.
 Eventually, the States guy returned a message:
 
 “Cancelled. I made other plans with my wife. You'll have to wait.”
+
+---
+
+True story.
+
+```
+The point I take from it is the cost of casually breaking a commitment isn't necessarily equal for both people.
+
+The States guy treats the meeting like something that can simply be postponed: “I made other plans. You'll have to wait.” But the Norwegian has already committed money, international travel, time, and—more importantly—part of a dream into relying on that agreement.
+
+So the underlying message is something like:
+
+If you tell someone they can rely on you, you don't get to pretend their reliance doesn't matter once it becomes inconvenient for you.
+
+There's another layer too: “I have other priorities” doesn't undo a commitment already made. The wife isn't really the point. The striking part is that he confirmed the meeting immediately before the Norwegian traveled and then disappeared. Had he said beforehand, “Don't fly over; I can't commit,” the Norwegian could have made an informed decision.
+
+And that's why the ghosting matters. It's not merely plans changed. It's one person knowingly allowing another person to incur a major cost in reliance on his word, then treating that person's resulting predicament as solely their problem.
+```
 "
 
 ---
