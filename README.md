@@ -2,7 +2,7 @@
 
 "I don't care who cares like me.
 
-Everyone has already decided I was the villain.
+Everyone has already decided I am the villain.
 
 Treat someone like a villain, you turn them into one.
 
