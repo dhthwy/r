@@ -1,5 +1,18 @@
 # r
 
+"In fact, I probably wouldn't have cared if at least some of y'all treated me well.
+
+You know damn well I begged for proper comms.
+
+Just for essential shit. Had no plan to go emo.
+
+Blocking comms on top of everything else is what made me this way in the first place.
+
+It's the withholding of essentials while you damn well knew it was leaving me to rot.
+"
+
+---
+
 "I don't care who cares like me.
 
 Everyone has already decided I am the villain.
