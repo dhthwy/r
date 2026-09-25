@@ -1,5 +1,7 @@
 # r
 
+https://www.biblegateway.com/passage/?search=Isaiah%2049%3A14-21&version=NIV
+
 "
 “It is easier to forgive an enemy than to forgive a friend.” — William Blake
 
