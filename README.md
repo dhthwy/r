@@ -1,5 +1,15 @@
 # r
 
+"
+“It is easier to forgive an enemy than to forgive a friend.” — William Blake
+
+```
+people who place unusually high value on loyalty may experience betrayal more intensely. If “I don't abandon people I care about” is a core principle, they may expect something similar in return. A serious violation can therefore feel less like an ordinary mistake and more like evidence that the relationship wasn't what they believed it was.
+```
+"
+
+---
+
 "The States guy never did apologize. The meeting ultimately never happened as he lost all credibility with the Norway dude.
 
 Apparently the States guy also said he had an 'attitude problem,' as the Norway person didn't take kindly to that level of carelessness."
