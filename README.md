@@ -4,11 +4,11 @@
 
 You know damn well I begged for proper comms.
 
-Just for essential shit. Had no plan to go emo.
+Just for essential shit. Had no plan to go emo. And if I did, then at least you had a reason.
 
-Blocking comms on top of everything else is what made me this way in the first place.
+Blocking comms on top of everything else BY DEFAULT is what made me this way in the first place.
 
-It's the withholding of essentials while you damn well knew it was leaving me to rot.
+It's the withholding of essentials while you damn well knew it was leaving me to rot. Keepin them chains on.
 "
 
 ---
