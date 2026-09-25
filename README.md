@@ -22,7 +22,7 @@ It's no different than the slave traders in django.
 
 They held the power. Abused and were cruel with it.
 
-Until the tables turned. Suddenly they get nice.
+Until the tables turned. Suddenly they get nice but it was too late. Once you know, you know.
 
 Exactly how it is. WTF.
 
