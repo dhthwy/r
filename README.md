@@ -1,5 +1,18 @@
 # r
 
+https://genius.com/Barry-manilow-mandy-lyrics
+
+"You're not Mandy.
+
+That's someone else. I might've missed them because of you.
+
+You'll never be a Mandy.
+
+I am certain now.
+"
+
+---
+
 "There was a time, for a long time, I was 100% loyal to you.
 
 Meaning, I would never intentionally went against or jeopardized you.
