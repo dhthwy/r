@@ -1,5 +1,9 @@
 # r
 
+"The States guy never did apologize. The meeting ultimately never happened as he lost all credibility with the Norway dude.
+
+Apparently the States guy also said he had an 'attitude problem,' as the Norway person didn't take kindly to that level of carelessness."
+
 "About two decades long ago, I knew this business fella from Norway.
 
 He had a big dream. So big it meant everything to him. He dumped much of his savings into it.
