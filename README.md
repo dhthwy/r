@@ -1,5 +1,48 @@
 # r
 
+"Disease. Sick.
+
+That's unattractive.
+
+That's the reason I didn't expect much.
+
+Being sick and diseased doesn't suddenly make other like-kinded sick people attractive either.
+
+Can't just tell them 'go hang out with your own kind.'
+
+It is true that no one wants you in that state- Employers, friends, etc.
+
+Anyone who is sick knows it.
+
+But it costs money to get better. Need good employment for that.
+
+Employer expects you to be sociable and normal - need friends for that.
+
+Friends don't want you because you're sick, diseased, with no good employment.
+
+Maybe friends could help you get better, but you need to have already had them.
+
+catch-22.
+
+THis isn't negativity. These are facts.
+
+I was super super lucky back in the day to have found myself a way to make money all by myself.
+
+That is super hard to do though. And super hard to find.
+
+I spent years working around the clock before I saw a buck.
+
+I was starving. Very little food in the house.
+
+I didn't have the money to fix my car or gas to go out.
+
+No one handed me money.
+
+So all I did was work all by myself.
+"
+
+---
+
 "There's an old friend from CT who is always miserable.
 
 So I get it.
