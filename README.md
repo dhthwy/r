@@ -1,5 +1,54 @@
 # r
 
+"FRom the day we were born if our parents were caring:
+
+we were taught
+
+money = keys to life
+
+no money = guaranteed misery and disease and slow agonizing death.
+
+because it's true.
+
+people without money die all of the time because of it.
+
+no money is extremely unattractive.
+
+tis why rich treat poor as some evil disease.
+
+and the poor who have some brains know this.
+
+Does that help? No.
+
+So what can one do about it?
+
+I don't know.
+
+Beg everyone for work.
+
+Help me! For I am lame!
+
+I'll do anything mang!
+
+I just want to live!
+
+I need money to eat yo!
+
+I've seen it so many times it makes me sick.
+
+Now the poor that somehow made it and got wealthy- they understand.
+
+There's some rich folks who made a choice to see it too.
+
+These rich folks throw some aid.
+
+But they are rare.
+
+I never asked anyone for a thing.
+
+I'm not sure I can bring myself to.
+"
+
 "Disease. Sick.
 
 That's unattractive.
