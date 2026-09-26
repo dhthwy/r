@@ -1,5 +1,20 @@
 # r
 
+"I don't see how people can be productive when their body burning in flames.
+
+dozens of projects to do... but I end up passing out much of the time because it's too much for me to bear.
+
+I can handle pain no problem, but this is different.
+
+Someone quite strong tried to crush my hand awhile back. I calmly said 'I'd rather not have broken bones.'
+
+It's nothing compared to my body screaming in agony.
+
+WTF. This is what I mean. I Don't understand how anyone can survive like this.
+
+And you think I'm gonna be happy this way?
+"
+
 "Just an old crazy person consumed in internal painful flames.
 
 Like charles manson.
