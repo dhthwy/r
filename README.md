@@ -4,6 +4,8 @@
 
 That's unattractive.
 
+We're biologically wired for it to be unattractive. It's a danger warning sign. Survival depends on health.
+
 That's the reason I didn't expect much.
 
 Being sick and diseased doesn't suddenly make other like-kinded sick people attractive either.
