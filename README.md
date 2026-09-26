@@ -1,5 +1,22 @@
 # r
 
+"Just an old crazy person consumed in internal painful flames.
+
+Like charles manson.
+
+ALl it took was some shoves to open up the inner gates of hell.
+
+I dread everday. So yes. I've got an attitude problem.
+
+Actually, I normally don't cuss.
+
+I'd have to be pretty po'd to cuss.
+
+as it happens, the computer screen tends to do that.
+"
+
+---
+
 "No one was going to help the scapegoat boy.
 
 You know it.
