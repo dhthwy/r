@@ -1,6 +1,6 @@
 # r
 
-"FRom the day we were born if our parents were caring:
+"FRom the day we were born if our parents were caring and wise:
 
 we were taught
 
