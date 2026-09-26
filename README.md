@@ -1,5 +1,48 @@
 # r
 
+"There's an old friend from CT who is always miserable.
+
+So I get it.
+
+I gave her an ear some years back. She yapped and whined constantly.
+
+I didn't judge though. I listened.
+
+I asked her 'what's good?'
+
+Nothing, she'd say.
+
+One day I said 'look, you have children, why are you so miserable? Let them bring you joy. Be happy for them if nothing else.'
+
+So I totally get it. No one likes to be around constant negativity. I don't tolerate it in others either.
+
+But here is the difference: we actually talked for real.
+
+Many years ago. Over a decade now, For years I spent almost every day texting and, voice/video chatting with someone.
+
+She was an attorney, so pretty smart. And she actually helped develop my ability to speak! I didn't get to talk much before that.
+
+We had a rule: if things got heated we'd take it to voice chat. Resolving conflict over text never worked out well, it usually ended bloody.
+
+She knew the screen/computer made me absolutely miserable.
+
+Unfortunately, I wasn't able to ever meet her.
+
+I was working on developing something that would later make me some money.
+
+But I didn't have enough for the trip back then, and I refused to take her money.
+
+I don't bother with online relationships anymore. No matter form: whether it's friends or whatever.
+
+When it starts on the screen, it ends on the screen.
+
+So yes, having past regrets, trying my damnest not to repeat.
+
+Being forced on the screen. Makes me pretty damn miserable.
+"
+
+---
+
 "I don't see how people can be productive when their body burning in flames.
 
 dozens of projects to do... but I end up passing out much of the time because it's too much for me to bear.
