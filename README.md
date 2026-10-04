@@ -12,7 +12,7 @@ cause you guys were acting like the bullys?
 
 if even for a period. even if that were no longer the case.
 
-it's nearly impossible to see because there really isn't any change.
+it's nearly impossible to see because there really isn't any tangible change.
 
 you know what they say about old wounds.
 
