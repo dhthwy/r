@@ -1,5 +1,14 @@
 # r
 
+
+https://www.youtube.com/shorts/HX4ho5wAmm4
+
+Very rare find. Most people are not like that guy.
+
+That's 1 in a mil right there.
+
+---
+
 In fact the PD was shutdown by the feds for awhile not long before because they were handing out fake felonies to too many people.
 
 It's like: 'You can do the dirty. We are all dirty in this corrupt business. But you got over zealous with it and attracted too much attention.'
