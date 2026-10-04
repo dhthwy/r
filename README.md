@@ -12,7 +12,7 @@ Hey, it makes perfect sense to me why people do what they do to those dirty SOBs
 
 get that all the time. and they do it too. Dirty fucking prosecutors and these corrupt ass dirty fucking magistrate homeboys of his have no problems playing whipping boys.
 
-Why? Cause I told his ass he can't sell property that isn't his unless he pays for it. And if he does, if anyone tries to get it back, he'll just have people 'locked up' cause THAT IS OUR JUSTICE SYSTEM. FUCK THE JUSTICE SYSTEM. FUCK THE JUDGES. FUCK THE COPS. FUCK THE PROSECUTORS. FUCK THE LAW.
+Why? Cause I told his ass he can't sell property that isn't his unless he pays for it. Trying to steal as usual. And if he does, if anyone tries to get it back, he'll just have people 'locked up' cause THAT IS OUR JUSTICE SYSTEM. FUCK THE JUSTICE SYSTEM. FUCK THE JUDGES. FUCK THE COPS. FUCK THE PROSECUTORS. FUCK THE LAW.
 
 
 I mean, I'm already getting beat on here.
