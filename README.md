@@ -1,5 +1,7 @@
 # r
 
+So for you to participate in murder too. You most certainly helped them. Then get up with your big man and stomp. And you wonder why there's so much hate and apathy. I hope you remember that when I'm dead or in prison. You helped!
+
 When you understand. You understand that none of these crooks care about the truth.
 
 They in fact love this shit! Mo money Mo money!
