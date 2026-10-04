@@ -1,6 +1,9 @@
 # r
 
 
+<img width="597" height="582" alt="Screenshot_20261003_221846" src="https://github.com/user-attachments/assets/a0569a63-fe46-4361-bb18-a1f21c739eac" />
+
+
 <img width="566" height="565" alt="Screenshot_20261003_221606" src="https://github.com/user-attachments/assets/7e21c197-aa34-404c-963f-8952c8845227" />
 
 "Boy did you help him grow into a look on downer!"
