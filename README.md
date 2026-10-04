@@ -1,5 +1,7 @@
 # r
 
+Hey, it makes perfect sense to me why people do what they do to those dirty SOBs in the so called justice system. Fuck them all.
+
 [lock.wav](https://github.com/user-attachments/files/33016597/lock.wav)
 
 get that all the time. and they do it too. Dirty fucking prosecutors and these corrupt ass dirty fucking magistrate homeboys of his have no problems playing whipping boys.
