@@ -12,6 +12,8 @@ It's not on the side of truth.
 
 It's on the money side. The whoever is willing to play the dirty games side.
 
+And the cops in particular loves to play the whippin boys for their homies, and they got some of their crony judges in their pocket to help them whip.
+
 ---
 
 By all means, continue to play your own sick games with those who already are getting beat on AND going down.
