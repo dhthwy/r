@@ -1,5 +1,19 @@
 # r
 
+I mean, I'm already getting beat on here.
+
+These are strangulation marks on my neck. I had a hard time swallowing for a week. Same marks on the other end.
+
+<img width="458" height="201" alt="Screenshot_20261003_232913" src="https://github.com/user-attachments/assets/adb1020b-4429-4ecb-80d2-e932445398b8" />
+
+But you can't do anything about it because the system favors the liars, the corrupt esp. when they have connections.
+
+FUCK THE LAW. FUCK CORRUPT COPS. FUCK DIRTY JUDGES.
+
+FUCK THEM ALL.
+
+---
+
 I didn't know that you turned into a bully when you suddenly turn your back on someone
 
 There's turning your back (abandonment) and then adding salt to injury (bully).
