@@ -1,5 +1,19 @@
 # r
 
+When you understand. You understand that none of these crooks care about the truth.
+
+They in fact love this shit! Mo money Mo money!
+
+And that is why victims don't come forward.
+
+The law is not on their side.
+
+It's not on the side of truth.
+
+It's on the money side. The whoever is willing to play the dirty games side.
+
+---
+
 By all means, continue to play your own sick games with those who already are getting beat on AND going down.
 
 Told ya, I'll be in prison soon! Fuck them all!
