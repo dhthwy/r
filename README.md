@@ -1,5 +1,19 @@
 # r
 
+I didn't know that you turned into a bully when you suddenly turn your back on someone
+
+There's turning your back (abandonment) and then adding salt to injury (bully).
+
+From my POV, it's all the same.
+
+So this is mostly a bleeding show
+
+and a hate show that goes both ways.
+
+I didn't know you were so ugly.
+
+---
+
 https://www.youtube.com/shorts/t8aMBDEyteQ
 
 pushers get pushed. bullys get bullied.
