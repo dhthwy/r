@@ -12,4 +12,10 @@ There's stories about people successfully suing a PD/town/county for letting the
 
 Perhaps, but it's hard when you're messed up and fucking alone.
 
+The so-called justice system is designed to favor malicious people. It keeps the money flowing into the whole corrupt system.
+
+Everyone loves it.
+
+You have to be a dirty motherfucker to do 'LAW'
+
 "History is what made us as we are today."
