@@ -1,5 +1,13 @@
 # r
 
+In fact the PD was shutdown for awhile not long before because they were handing out fake felonies to too many people.
+
+It's like: 'You can do the dirty. We are all dirty in this corrupt business. But you got over zealous with it and attracted too much attention.'
+
+Who issued all the felonies? Wasn't the cops! Corrupt ass filthy judges that were in on it probably got away with it.
+
+---
+
 <img width="2048" height="613" alt="IMG_0519" src="https://github.com/user-attachments/assets/24a7b998-0d78-4046-94bc-224daa565387" />
 
 This is the type of horseshit that they issue em for.
