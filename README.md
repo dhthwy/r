@@ -1,5 +1,12 @@
 # r
 
+[lock.wav](https://github.com/user-attachments/files/33016597/lock.wav)
+
+get that all the time. and they do it too. Dirty fucking prosecutors and these corrupt ass dirty fucking magistrate homeboys of his have no problems playing whipping boys.
+
+Why? Cause I told his ass he can't sell property that isn't his unless he pays for it.
+
+
 I mean, I'm already getting beat on here.
 
 These are strangulation marks on my neck. I had a hard time swallowing for a week. Same marks on the other end.
