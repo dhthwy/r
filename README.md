@@ -1,5 +1,26 @@
 # r
 
+https://www.youtube.com/shorts/t8aMBDEyteQ
+
+pushers get pushed. bullys get bullied.
+
+that's how I view you, unfortunately.
+
+but why?
+
+cause you guys were acting like the bullys?
+
+if even for a period. even if that were no longer the case.
+
+it's nearly impossible to see because there really isn't any change.
+
+you know what they say about old wounds.
+
+time doesn't heal.
+
+time turns them into concrete.
+
+---
 
 Well fed giants vs little twerps.
 
