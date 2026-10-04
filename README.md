@@ -11,6 +11,10 @@ I mean, I'm already getting beat on here.
 
 These are strangulation marks on my neck. I had a hard time swallowing for a week. Same marks on the other end.
 
+Why? I was serving my dad dinner and he was 'angry' because I told him I didn't want to be in the same car as him to a funeral.
+
+They were going to get his homeboys to have me locked up that night too. And they would've succeeded if my dad wasn't begging.
+
 <img width="458" height="201" alt="Screenshot_20261003_232913" src="https://github.com/user-attachments/assets/adb1020b-4429-4ecb-80d2-e932445398b8" />
 
 But you can't do anything about it because the system favors the liars, the corrupt esp. when they have connections.
