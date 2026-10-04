@@ -4,7 +4,7 @@ In fact the PD was shutdown for awhile not long before because they were handing
 
 It's like: 'You can do the dirty. We are all dirty in this corrupt business. But you got over zealous with it and attracted too much attention.'
 
-Who issued all the felonies? Wasn't the cops! Corrupt ass filthy judges that were in on it probably got away with it.
+Who issued all the felonies? Wasn't the cops! Corrupt ass filthy judges and DA that were in on it probably got away with it.
 
 ---
 
