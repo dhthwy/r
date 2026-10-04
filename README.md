@@ -1,5 +1,9 @@
 # r
 
+By all means, continue to play your own sick games with those who already are getting beat on AND going down.
+
+Told ya, I'll be in prison soon! Fuck them all!
+
 Some people can get away with murder. Just like Trump said. Because THEY LET YOU DO IT. It is true!
 
 Hey, it makes perfect sense to me why people do what they do to those dirty SOBs in the so called justice system. Fuck them all.
