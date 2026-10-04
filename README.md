@@ -1,6 +1,6 @@
 # r
 
-In fact the PD was shutdown for awhile not long before because they were handing out fake felonies to too many people.
+In fact the PD was shutdown by the feds for awhile not long before because they were handing out fake felonies to too many people.
 
 It's like: 'You can do the dirty. We are all dirty in this corrupt business. But you got over zealous with it and attracted too much attention.'
 
