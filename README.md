@@ -1,6 +1,9 @@
 # r
 
 
+Well fed giants vs little twerps.
+
+
 <img width="597" height="582" alt="Screenshot_20261003_221846" src="https://github.com/user-attachments/assets/a0569a63-fe46-4361-bb18-a1f21c739eac" />
 
 
