@@ -14,6 +14,12 @@ CNAs just like many transportation jobs simply don't pay enough to cover large e
 
 You better have a big savings and even then that can erode quickly when you're underpaid and require expensive things to do your job.
 
+Same thing in the trucking industry. SPecifically owner-operators.
+
+You can buy a big ass work truck and haul things. Loans, fuel, and maint. costs can be astronomical. Lots of people thought they could do it. Lots of them failed to factor in all the costs of doing business and subsequently went under as soon as a big expense popped up.
+
+In fact, I believe a single truck is unprofitable. So one needs a few trucks and drivers to go with them.
+
 ---
 
 I remember a family member complaining about CNA work:
