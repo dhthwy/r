@@ -1,5 +1,13 @@
 # r
 
+I know you don't care for me.
+
+I just wish everyone would've been kind about it.
+
+The resources I wasted to find out may have very well been the difference between life and death.
+
+---
+
 https://www.quora.com/What-job-sounds-pointless-until-you-understand-why-people-need-it
 
 must be wonderful to be busy
