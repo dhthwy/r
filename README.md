@@ -2,7 +2,7 @@
 
 I remember a family member complaining about CNA work:
 
-'I take home less than 3k a month. And I have to pay $100s in gas out of pocket. That's nothing. Doing it for several years at that point.'
+'I take home less than 3k a month. And I have to pay $100s in gas out of pocket. That's nothing.' Doing it for several years at that point.
 
 In the 90s that same person managed a retail store and made half that in a single week.
 
