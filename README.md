@@ -1,6 +1,22 @@
 # r
 
-Your typical job: 4 hours a day, 5 days a week. Random daily hours: either morning, day, or evening
+Reminds me of these CNAs that come out sometimes.
+
+The bottom tier of the healthcare workforce.
+
+They don't make enough for a roof over their head though.
+
+Sure they don't need expensive multi-year long training.
+
+But these 'essential' workers put in the time, work hard, and deserve a safe roof over their head at night.
+
+America doesn't provide them with that.
+
+And that's your typical job. Most jobs available to people who want to work are like that.
+
+---
+
+Your typical job: 5-6 hours a day (take home pay is around 4 hours after taxes), 5 days a week. Random daily hours: either morning, day, or evening
 
 Depending on wage, one hour of that could easily be deducted for transportation costs. And if you're exposed to people all day or otherwise putting wear and tear on your body for a job then medical should be deducted as well- perhaps another hour. Shit, you're almost better off staying home!
 
