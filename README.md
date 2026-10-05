@@ -1,5 +1,21 @@
 # r
 
+Your typical job: 4 hours a day, 5 days a week. Random daily hours: either morning, day, or evening
+
+Depending on wage, one hour of that could easily be deducted for transportation costs.
+
+Gig like Uber is break-even at best after factoring in vehicle/gas costs.
+
+It's amazing how so few people understand the economics.
+
+Apparently some banks make people take a course on business before supplying them with a loan.
+
+In fact, me having at least some modicum of understanding is why I'm so god damn pessimistic.
+
+The top of the pyramid like Uber gets rich. The drivers/bottom stay poor.
+
+---
+
 https://www.tnttt.com/threads/first-full-foamie-build-no-wood-framing-used.1084948/
 
 I prep to be stuck working at jobs that dont pay a living.
