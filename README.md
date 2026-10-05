@@ -1,5 +1,15 @@
 # r
 
+https://www.quora.com/What-job-sounds-pointless-until-you-understand-why-people-need-it
+
+must be wonderful to be busy
+
+I vaguely remember what it felt like to feel needed whether it's work, etc.
+
+we are what we do.
+
+---
+
 Must suck to have a little twerp like me piddling in your cookie jar.
 
 shame that i began viewing you as a bully.
