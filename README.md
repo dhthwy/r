@@ -1,5 +1,21 @@
 # r
 
+CNA that used to come out one time said
+
+'hey, you look nice. You going on a date?'
+
+I said: 'Good question. I don't know.'
+
+That was years ago. Much has changed.
+
+Nice lady. Just trying to support her children. Don't know if she was alone but she did have to move back to NY after her car engine blew up on her.
+
+CNAs just like many transportation jobs simply don't pay enough to cover large expenses.
+
+You better have a big savings and even then that can erode quickly when you're underpaid and require expensive things to do your job.
+
+---
+
 I remember a family member complaining about CNA work:
 
 'I take home less than 3k a month. And I have to pay $100s in gas out of pocket. That's nothing.' Doing it for several years at that point.
