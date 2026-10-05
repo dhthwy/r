@@ -1,5 +1,21 @@
 # r
 
+I remember a family member complaining about CNA work:
+
+'I take home less than 3k a month. And I have to pay $100s in gas out of pocket. That's nothing. Doing it for several years at that point.'
+
+In the 90s that same person managed a retail store and made half that in a single week.
+
+Get paid less. Dolla buys less.
+
+Things worked out ok for them because their partner did the same thing. Combined they made just enough.
+
+Alone = no life.
+
+I prep for that.
+
+---
+
 Reminds me of these CNAs that come out sometimes.
 
 The bottom tier of the healthcare workforce.
