@@ -22,7 +22,7 @@ I prep to be stuck working at jobs that dont pay a living.
 
 So a tiny homemade foamie RV is what im looking at building next. Slap it on a 5x8 utility trailer.
 
-of course the government doesn't like that- they rather you be dead, on the streets, or spending every cent on a studio with no money left for anything else.
+of course the government doesn't like that- they rather you be dead, on the streets, or spending every cent on a studio with no money left for anything else which ultimately leads to death or on the streets anyway.
 
 roommates are difficult to find.
 
