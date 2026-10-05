@@ -1,5 +1,21 @@
 # r
 
+https://www.tnttt.com/threads/first-full-foamie-build-no-wood-framing-used.1084948/
+
+I prep to be stuck working at jobs that dont pay a living.
+
+So a tiny homemade foamie RV is what im looking at building next. Slap it on a 5x8 utility trailer.
+
+of course the government doesn't like that- they rather you be dead, on the streets, or spending every cent on a studio with no money left for anything else.
+
+roommates are difficult to find.
+
+I may very well end up in texas.
+
+I imagine the laws are getting more lax as the poor get poorer and more people find themselves in similar situation.
+
+---
+
 I know you don't care for me.
 
 I just wish everyone would've been kind about it.
