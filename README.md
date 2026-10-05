@@ -2,7 +2,7 @@
 
 Your typical job: 4 hours a day, 5 days a week. Random daily hours: either morning, day, or evening
 
-Depending on wage, one hour of that could easily be deducted for transportation costs.
+Depending on wage, one hour of that could easily be deducted for transportation costs. And if you're exposed to people all day or otherwise putting wear and tear on your body for a job then medical should be deducted as well- perhaps another hour. Shit, you're almost better off staying home!
 
 Gig like Uber is break-even at best after factoring in vehicle/gas costs.
 
