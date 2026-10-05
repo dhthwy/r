@@ -4,7 +4,7 @@ Must suck to have a little twerp like me piddling in your cookie jar.
 
 shame that i began viewing you as a bully.
 
-i think it was the first '5 incident with that pointing pic you threw up along with their surf mock that changed things for me
+i think it was the first '5 incident with that pointing pic you threw up along with their surf mock ( applied to context, surrounding circumstances ) that changed things for me
 
 ---
 
