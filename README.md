@@ -10,7 +10,7 @@ Get paid less. Dolla buys less.
 
 Things worked out ok for them because their partner did the same thing. Combined they made just enough.
 
-Alone = no life.
+These days alone = no life.
 
 I prep for that.
 
