@@ -26,6 +26,14 @@ I've always been on the other end of the spectrum- the ones you don't want.
 
 It was/is easy to see.
 
+That will never change.
+
+Even if it did. Old wounds turned to concrete.
+
+Definitely not spending another penny to further reinforce what I already know.
+
+Whatever was planned...wasn't any good...not for me.
+
 ---
 
 "For Prime Members Only
