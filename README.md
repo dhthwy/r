@@ -1,5 +1,14 @@
 # r
 
+"For Prime Members Only
+Get 50% off, up to $50."
+
+https://amzn.to/3U9Tc83
+
+The points promos are fire.
+
+---
+
 I'm fully aware I abused the idiom 'be party to.' I'm a norm violator.
 
 ---
