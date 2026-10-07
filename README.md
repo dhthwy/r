@@ -1,5 +1,33 @@
 # r
 
+The other major divider was letting someone form an opinion of me before even spending a few minutes with me.
+
+That was clear as day right off the bat based on what was coming from both of you.
+
+Which never really changed.
+
+In fact, giving them even more power has been a constant change.
+
+I ignored all the advice and all of the wisdom.
+
+'If she wants you, you will KNOW IT.'
+
+'If she wants you, she will make it happen.'
+
+'If she wants you, she won't slam doors in your face.'
+
+For a long time I thought you had to do it.
+
+Then you taught me it was your choice.
+
+Easy to see when you notice all the things you do for those you do want.
+
+I've always been on the other end of the spectrum- the ones you don't want.
+
+It was/is easy to see.
+
+---
+
 "For Prime Members Only
 Get 50% off, up to $50."
 
