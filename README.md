@@ -1,6 +1,6 @@
 # r
 
-The other major divider was letting someone form an opinion of me before even spending a few minutes with me.
+The other major divider was letting someone influence your opinion of me before even spending a few minutes with me.
 
 That was clear as day right off the bat based on what was coming from both of you.
 
