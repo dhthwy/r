@@ -18,7 +18,7 @@ I ignored all the advice and all of the wisdom.
 
 For a long time I thought you had to do it.
 
-Then you taught me it was your choice.
+Then you taught me it was really your choice afterall.
 
 Easy to see when you notice all the things you do for those you do want.
 
