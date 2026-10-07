@@ -12,6 +12,14 @@ Ratio -> 1,000,000 to 1
 
 Time doesn't heal wounds. It turns em into concrete.
 
+Besides, it will always be theirs to me.
+
+I won't play party to dilution and it certainly isn't worth having my one and only diluted.
+
+It was once very special to me.
+
+But dread and betrayal live there now.
+
 ---
 
 https://www.youtube.com/watch?v=N-aK6JnyFmk
