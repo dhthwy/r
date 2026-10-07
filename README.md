@@ -1,5 +1,9 @@
 # r
 
+I'm fully aware I abused the idiom 'be party to.' I'm a norm violator.
+
+---
+
 I won't be returning.
 
 I should've blessed someone else last year like I had intended.
