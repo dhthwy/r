@@ -14,7 +14,7 @@ Time doesn't heal wounds. It turns em into concrete.
 
 Besides, it will always be theirs to me.
 
-I won't play party to dilution and it certainly isn't worth having my one and only diluted.
+I won't play party to dilution and it certainly isn't worth having my one and only diluted and likely meddled with as before.
 
 It was once very special to me.
 
