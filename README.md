@@ -34,6 +34,10 @@ Definitely not spending another penny to further reinforce what I already know.
 
 Whatever was planned...wasn't any good...not for me.
 
+It never was. Never has been. Never will be.
+
+I don't let people do that to me anymore.
+
 ---
 
 "For Prime Members Only
