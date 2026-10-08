@@ -22,6 +22,10 @@ There is no way in sam hell I can afford a roof with the jobs available to me.
 
 You might as well just have told me to throw 10k into a fireplace.
 
+because that's how we treat those who are going thru these things.
+
+fuckin jerk.
+
 ---
 
 The other major divider was letting someone influence your opinion of me before even spending a few minutes with me.
