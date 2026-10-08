@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/shorts/yYvWGOfve68
+
+---
+
 If asshole wasn't an asshole, I could probably bring work to a body+auto shop since the owner actually likes people working there.
 
 Just pay the shop owner a facility fee and he'd probably be happy.
