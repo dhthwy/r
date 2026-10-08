@@ -1,5 +1,17 @@
 # r
 
+My time has run out.
+
+I don't have time for schooling, etc
+
+My mother is at the stage where doesn't know who I am anymore. She doesn't know my name. Doesn't know that I'm her son.
+
+both of them have major health issues, but my mom has advanced rapidly.
+
+I cannot pay all the bills where I am so I will be homeless or living with a roommate somewhere else soon if a decent one is even possible to find.
+
+---
+
 The other major divider was letting someone influence your opinion of me before even spending a few minutes with me.
 
 That was clear as day right off the bat based on what was coming from both of you.
