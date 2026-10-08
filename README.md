@@ -4,6 +4,8 @@ Now that my mom doesn't recognize who I am anymore
 
 If I ever have to assist her again in official matters, she may very well refer to me as her bf.
 
+Maybe there is good medicine to halt progression but bottom-tier doesn't get access to them.
+
 ---
 
 Not everyone enjoys being lazy.
