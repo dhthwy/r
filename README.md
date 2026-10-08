@@ -1,5 +1,15 @@
 # r
 
+If asshole wasn't an asshole, I could probably bring work to a body+auto shop since the owner actually likes people working there.
+
+Just pay the shop owner a facility fee and he'd probably be happy.
+
+I could then learn how to do body work and paint vehicles.
+
+But assholes gonna be assholes.
+
+---
+
 Now that my mom doesn't recognize who I am anymore
 
 If I ever have to assist her again in official matters, she may very well refer to me as her bf.
