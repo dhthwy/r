@@ -1,5 +1,25 @@
 # r
 
+That's your girl.
+
+I knew that last year.
+
+I knew it the year before last year.
+
+Didn't need to rub it in though.
+
+Only reason I took issue was that I really needed that 1v1 without someone meddling to ruin it.
+
+Only had that one way.
+
+She didn't give a fuck tho. You can hear her say 'i dont gib no fuk. i dont gib no fux.'
+
+Well that's great. A wonderful lesson.
+
+Now neither do I.
+
+---
+
 Doin some late night shoppin.
 
 Figure a $250 easy gift card was worth a shot.
