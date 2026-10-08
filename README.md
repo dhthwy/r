@@ -1,5 +1,14 @@
 # r
 
+Not everyone enjoys being lazy.
+
+If someone asked me to do a job right now that I was capable of, I would do it in a heartbeat.
+
+I don't say no.
+
+BIG HUGE DIFFERENCE between lack of opportunity and lack of wanting that opportunity.
+
+---
 
 the 250 wasn't all that great, but it did allow me to establish a relationship with a lender ive been trying to jump on for years.
 
