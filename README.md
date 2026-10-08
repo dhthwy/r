@@ -10,6 +10,16 @@ both of them have major health issues, but my mom has advanced rapidly.
 
 I cannot pay all the bills where I am so I will be homeless or living with a roommate somewhere else soon if a decent one is even possible to find.
 
+I don't have years.
+
+I knew this years ago. I knew I'd only have one shot to figure things out.
+
+But the worst case happened instead.
+
+So I prep for car living because finding a decent roommate may be impossible.
+
+There is no way in sam hell I can afford a roof with the jobs available to me.
+
 ---
 
 The other major divider was letting someone influence your opinion of me before even spending a few minutes with me.
