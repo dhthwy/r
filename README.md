@@ -1,5 +1,14 @@
 # r
 
+
+the 250 wasn't all that great, but it did allow me to establish a relationship with a lender ive been trying to jump on for years.
+
+if i had more than a trickle of business, I could pop this 25k biz credit.
+
+biz credit is superior to personal.
+
+---
+
 That's your girl.
 
 I knew that last year.
