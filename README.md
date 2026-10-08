@@ -1,5 +1,29 @@
 # r
 
+Doin some late night shoppin.
+
+Figure a $250 easy gift card was worth a shot.
+
+```
+Initial credit limit
+
+$5,000 available now
+
+Approved credit limit
+
+$8,000 after card delivery and confirmation
+
+Purchase APR
+
+26.99% variable
+
+Amazon Gift Card†
+
+$250
+```
+
+---
+
 One shot because it usually costs a lot of time and money to eventually make money.
 
 Only some of them are truly legit.
