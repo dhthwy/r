@@ -1,5 +1,11 @@
 # r
 
+Now that my mom doesn't recognize who I am anymore
+
+If I ever have to assist her again, she may very well call me her bf.
+
+---
+
 Not everyone enjoys being lazy.
 
 If someone asked me to do a job right now that I was capable of, I would do it in a heartbeat.
