@@ -1,5 +1,37 @@
 # r
 
+One shot because it usually costs a lot of time and money to eventually make money.
+
+Only some of them are truly legit.
+
+Schools are notorious for selling bs to new students. Living like it's 1999.
+
+Yeah sure, two decades ago that skillset was super relevant and needed. Today? Nope.
+
+They gotta make that money somehow.
+
+Bootcamps are the same way.
+
+Give us 20k and we'll teach you all you need to know in 3 months to land that 6-figure dream job!
+
+Many fell for it. Most wasted their money.
+
+But I don't have time for a degree.
+
+Going into steep debt for one is a huge decision too.
+
+Plenty of literature out there from professors telling prospects
+
+'school will make your current problems far worse.'
+
+And that's why people fail out.
+
+Years ago there was. Not sure now.
+
+Schools have been taking some huge blows. Scaring prospects away doesn't help the bleed.
+
+---
+
 My time has run out.
 
 I don't have time for schooling, etc
