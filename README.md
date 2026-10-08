@@ -2,7 +2,7 @@
 
 Now that my mom doesn't recognize who I am anymore
 
-If I ever have to assist her again, she may very well call me her bf.
+If I ever have to assist her again in official matters, she may very well refer to me as her bf.
 
 ---
 
