@@ -15,6 +15,12 @@ Lots of time like the time that was wasted was the only key.
 
 Unlimited money = more fucked over won't hurt so bad.
 
+More money. Less the bad bad.
+
+Depends on a lot of things.
+
+Biggest one being whether I can be productive again with 0 help.
+
 ---
 
 https://www.youtube.com/watch?v=N-aK6JnyFmk
