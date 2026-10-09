@@ -21,6 +21,8 @@ Depends on a lot of things.
 
 Biggest one being whether I can be productive again with 0 help.
 
+My middle finger up for all those who kicked me when I was down.
+
 ---
 
 https://www.youtube.com/watch?v=N-aK6JnyFmk
