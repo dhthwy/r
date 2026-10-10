@@ -1,6 +1,11 @@
 # r
 
 
+https://www.youtube.com/watch?v=hG3mJcUzwaI
+
+---
+
+
 I would absolutely love working in a shop again.
 
 I considered getting my hands dirty with small engine repair.
