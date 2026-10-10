@@ -1,5 +1,29 @@
 # r
 
+How do you transport two elderly in a coupe?
+
+You can't.
+
+I told them not to give away their only vehicle.
+
+'Just transfer your car over to me. I'll take you wherever you need to go.'
+
+Yeah right. 'Thanks for the car suckah! LMAO.'
+
+In 2017 the cheapest car ever was the Nissan Versa. MSRP $12k.
+
+Today, worn out used ones with well over 100k mileage sell for that price.
+
+And the cheapest car MSRPs well north of 20k.
+
+Had I been smart and put my money toward another vehicle instead of throwing it away, I wouldn't be dealing with shit like this.
+
+It used to be, you can find a running car for 1k in a pinch.
+
+It may not last long, it may look ugly, but it'll get you where you need to go for awhile.
+
+---
+
 
 https://www.youtube.com/watch?v=hG3mJcUzwaI
 
