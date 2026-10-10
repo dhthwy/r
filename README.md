@@ -1,5 +1,28 @@
 # r
 
+
+I would absolutely love working in a shop again.
+
+I considered getting my hands dirty with small engine repair.
+
+Or alternator / starter repair.
+
+Alternators in particular aren't cheap to test- the equipment costs thousands.
+
+And the market is probably small since there is only one person doing it that im aware of in my area.
+
+Diagnosing automotive issues is another one I might enjoy.
+
+BUT, that is extremely difficult without extensive experiance, especially with modern cars.
+
+Having to purchase licenses for detailed data on all the vehicles I'll be working on gets expensive fast too.
+
+And most people want their car fixed then and there.
+
+Super hard to find realistic opportunities.
+
+---
+
 Be happy that is your girl.
 
 You can spend most of your time working and rarely see eachother.
