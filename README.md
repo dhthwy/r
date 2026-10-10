@@ -22,6 +22,10 @@ It used to be, you can find a running car for 1k in a pinch.
 
 It may not last long, it may look ugly, but it'll get you where you need to go for awhile.
 
+Only a fuckin idiot drops bands just to be blacklisted.
+
+Wasted wasted wasted.
+
 ---
 
 
