@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/watch?v=m93rM6XIPP8&t=378s
+
 "I drive a 26 year old car.
 
 If I were to see someone else driving it I'd think they were a crack head.
