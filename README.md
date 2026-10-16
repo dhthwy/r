@@ -1,5 +1,15 @@
 # r
 
+https://www.youtube.com/shorts/WX2ni2oG4E8
+
+That's some real sheeit. That's why I don't like working on cars.
+
+Especially professionaly. You're paid only so many hours to do a job and in many cases the job actually takes longer than stated in the book. Run into something like that? which is often.
+
+Then you get threatened with the can for taking too long.
+
+---
+
 https://www.youtube.com/watch?v=m93rM6XIPP8&t=378s
 
 "I drive a 26 year old car.
