@@ -1,5 +1,13 @@
 # r
 
+On the other hand, it's good to be free. Good to know I'll never again waste another cent on that bitch.
+
+Now if I can get out slo-mo mode I'll be able to actually find someone who does appreciate me.
+
+Fuck that bitch though.
+
+---
+
 Like I said.
 
 That's your girl.
