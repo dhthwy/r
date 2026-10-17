@@ -1,5 +1,8 @@
 # r
 
+https://www.youtube.com/shorts/uKfTEQIKIsA
+
+
 https://www.youtube.com/watch?v=JA8jDrEufOw&t=992s
 
 https://www.youtube.com/watch?v=fJuapp9SORA&t=216s
