@@ -1,5 +1,13 @@
 # r
 
+https://www.youtube.com/watch?v=JA8jDrEufOw&t=992s
+
+https://www.youtube.com/watch?v=fJuapp9SORA&t=216s
+
+Dishonest, scammer bitch.
+
+---
+
 On the other hand, it's good to be free. Good to know I'll never again waste another cent on that bitch.
 
 Now if I can get out slo-mo mode I'll be able to actually find someone who does appreciate me.
