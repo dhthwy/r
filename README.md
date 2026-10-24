@@ -16,6 +16,10 @@ They'll never give me peace and space ever since knowing I exist.
 
 I don't think it matters anymore.
 
+Peace and space only matter where there is op.
+
+I don't believe I'll have the slack for more.
+
 ---
 
 https://youtu.be/4vDuy9xZFsA?t=75
