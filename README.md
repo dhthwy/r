@@ -1,5 +1,21 @@
 # r
 
+https://www.youtube.com/watch?v=WH99EHAjiro
+
+Probably gonna build one of these.
+
+Can haul that with almost anything.
+
+I'll probably need to move out of state though.
+
+Unbelievable that the government doesn't relax rules when they damn well full know that many people can't afford standard housing on a little bitty paycheck.
+
+Even your nastiest shithole around here in the rural slums is $1k. And at that rate, landlords don't fix a thing. Demand a repair? That's what month-to-month leases are for. Kick em out. FInd someone who repairs it themselves.
+
+Apartment may be better but then you can't repair your own vehicle. Not being able to do that can easily cost 2k per year.
+
+---
+
 No one was ever going to contact or respond to contact from me.
 
 that was obvious from the first day.
