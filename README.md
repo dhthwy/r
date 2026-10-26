@@ -1,5 +1,17 @@
 # r
 
+No one was ever going to contact or respond to contact from me.
+
+that was obvious from the first day.
+
+Just waste years believing communication was ever going to be established.
+
+All I ever got was no. Then people calling cops.
+
+No more of that. I got enough problems.
+
+---
+
 I didn't have the time to waste another decade.
 
 I needed to figure things out right then and there.
