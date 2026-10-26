@@ -28,6 +28,13 @@ Dumbass had an 8k a month job in SC.
 
 He was wondering why he couldn't find anyone. I said, you know why? Because you're wasting it all on drugs.
 
+Vast majority of jobs that are actually obtainable for me only pay $10/hr and getting lots of hours even at that rate is also difficult.
+
+That makes me homeless no matter what.
+
+Even if you're lucky and can get 60 hours of payable hours a week with work. That's only $600 per week.
+
+2k isn't enough for housing and transportation.
 
 ---
 
