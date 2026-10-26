@@ -14,7 +14,7 @@ Sure I can fix some things on a car... but that doesn't make me a mechanic. And 
 
 I was so excited when I had the op to finally use tools I bought when a shop owner let me work with my brother.
 
-And if my brother wasn't smoking crack and shooting up H maybe I could've learned more.
+And if my brother wasn't smoking crack and shooting up H maybe I could've learned more before I had to exit a bad situation.
 
 ---
 
