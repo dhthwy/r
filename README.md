@@ -1,5 +1,23 @@
 # r
 
+In this economy, those that live in constructive groups have a big edge.
+
+People can't have kids though because that bed space is needed for a working adult.
+
+We're seeing this now.
+
+Even if you have a good job today, what if you lost it? AI kills jobs all the time.
+
+The best example is what happened to gov employees sacked during the Musk/Trump mass firing.
+
+They went from decent to good paying job down to 'oh shit, apparently I can't make even close to that much anywhere else!'
+
+There goes the home. Boom. Splat.
+
+This is especially true in tech right now.
+
+---
+
 It's not any single person who is hated.
 
 It was the gang bangism.
