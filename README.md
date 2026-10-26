@@ -4,6 +4,8 @@ It's not any single person who is hated.
 
 It was the gang bangism.
 
+US vs me. Why? Cause that's why.
+
 I really don't have any skills worth a damn.
 
 I spent too much time on the computer.
