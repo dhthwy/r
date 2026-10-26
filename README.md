@@ -1,5 +1,19 @@
 # r
 
+I didn't have the time to waste another decade.
+
+I needed to figure things out right then and there.
+
+Instead of falling into a black hole.
+
+A good friend would've been a great thing to have after being sick and isolated for so long.
+
+At my age. Old and alone and 99.9% likely to be stuck working deadend jobs where I'm forced to live paycheck to paycheck after my funds run out.
+
+Pretty much fucked.
+
+---
+
 Of course, if you're rich then you have lots of slack and far more ops to make money than most people.
 
 Takes money to make money!
