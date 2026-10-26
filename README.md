@@ -6,6 +6,8 @@ People can't have kids though because that bed space is needed for a working adu
 
 We're seeing this now.
 
+One earner enough? No. Two? No. Three to four? Probably.
+
 Even if you have a good job today, what if you lost it? AI kills jobs all the time.
 
 The best example is what happened to gov employees sacked during the Musk/Trump mass firing.
@@ -15,6 +17,14 @@ They went from decent to good paying job down to 'oh shit, apparently I can't ma
 There goes the home. Boom. Splat.
 
 This is especially true in tech right now.
+
+The point is that thanks to tech and AI things are accelerating to the extent almost no one can depend on their job to sustain a family.
+
+A LOT changes in a few years, and the velocity is much faster.
+
+So you need multiple earners.
+
+The smart ones saw this coming long ago. They saved. They prepared. They prefer to have multiple earners in the household- Godfather style.
 
 ---
 
