@@ -1,5 +1,17 @@
 # r
 
+It's not any single person who is hated.
+
+It was the gang bangism.
+
+I really don't have any skills worth a damn.
+
+I spent too much time on the computer.
+
+But the way things are now, especially with AI (altho it was like this before AI), I might as well been sitting on a couch watching TV.
+
+---
+
 There are some things I understand.
 
 For that reason it's best to stick with what you know.
