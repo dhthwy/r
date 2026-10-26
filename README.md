@@ -6,6 +6,10 @@ Takes money to make money!
 
 I was just reading an article from nytimes about this.
 
+https://www.nytimes.com/2026/10/25/nyregion/30-year-old-angst.html
+
+And I'm worse off than they are.
+
 They can live in tiny houses or in groups but can't afford the space for kids.
 
 A tiny house is actually something worth looking into.
