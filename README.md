@@ -1,5 +1,27 @@
 # r
 
+Of course, if you're rich then you have lots of slack and far more ops to make money than most people.
+
+Takes money to make money!
+
+I was just reading an article from nytimes about this.
+
+They can live in tiny houses or in groups but can't afford the space for kids.
+
+A tiny house is actually something worth looking into.
+
+But land is also astronomical.
+
+I know there's quite a few people who built their own damn house.
+
+There's that land though.
+
+Used to be you can buy plenty of land for $10k.
+
+Now it's like $50k.
+
+---
+
 In this economy, those that live in constructive groups have a big edge.
 
 People can't have kids though because that bed space is needed for a working adult.
