@@ -14,7 +14,7 @@ Pretty much fucked.
 
 And that's what happens when you're alone.
 
-Simply getting someone to give you a damn parking spot so you can sleep safely at night is a nightmare in its own.
+Simply paying someone to give you a damn parking spot so you can sleep safely at night is a nightmare in its own.
 
 ---
 
