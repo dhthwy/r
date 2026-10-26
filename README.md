@@ -10,6 +10,12 @@ I spent too much time on the computer.
 
 But the way things are now, especially with AI (altho it was like this before AI), I might as well been sitting on a couch watching TV.
 
+Sure I can fix some things on a car... but that doesn't make me a mechanic. And mechanic pay sux regardless.
+
+I was so excited when I had the op to finally use tools I bought when a shop owner let me work with my brother.
+
+And if my brother wasn't smoking crack and shooting up H maybe I could've learned more.
+
 ---
 
 There are some things I understand.
