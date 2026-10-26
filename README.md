@@ -18,6 +18,17 @@ I was so excited when I had the op to finally use tools I bought when a shop own
 
 And if my brother wasn't smoking crack and shooting up H maybe I could've learned more before I had to exit a bad situation.
 
+Last memory I have of him is me shaking my head at him.
+
+He went to live with his other drug addict friends. Decided to try some fent because it was so cool.
+
+Girl he was with looked at him as he OD'd from it.
+
+Dumbass had an 8k a month job in SC.
+
+He was wondering why he couldn't find anyone. I said, you know why? Because you're wasting it all on drugs.
+
+
 ---
 
 There are some things I understand.
