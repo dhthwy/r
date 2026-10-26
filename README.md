@@ -12,6 +12,10 @@ At my age. Old and alone and 99.9% likely to be stuck working deadend jobs where
 
 Pretty much fucked.
 
+And that's what happens when you're alone.
+
+Simply getting someone to give you a damn parking spot so you can sleep safely at night is a nightmare in its own.
+
 ---
 
 Of course, if you're rich then you have lots of slack and far more ops to make money than most people.
