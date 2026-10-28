@@ -1,5 +1,25 @@
 # r
 
+Yeaeh having work helps.
+
+Even without a decent job I used to be prepared to cover most of the cost of a good vehicle.
+
+because a good car helps in many ways and it wouldn't take too long to recover.
+
+But economy got much worse.
+
+Too many people laid off so that one person can run a group of AI agents.
+
+It doesn't make sense to spend a chunk on a car when those in power have been cutting people out to to make more money.
+
+They tell everyone they aren't with they mouth, then do the opposite with their hands.
+
+It's all rather unsettling.
+
+And that's not something you want or need to experience after making a big purchase.
+
+---
+
 https://www.amazon.com/dp/B00C92GJGG
 
 Perfume
