@@ -1,5 +1,15 @@
 # r
 
+It didn't make much sense for the rich folks to screw over the little people.
+
+It may appear to help them for awhile... but over time they're screwing themselves too.
+
+It may be better to go to where the jobs are super easy, but the risk is far greater for the little people.
+
+Super easy for everyone except for the little ones.
+
+---
+
 Yeaeh having work helps.
 
 Even without a decent job I used to be prepared to cover most of the cost of a good vehicle.
