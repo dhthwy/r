@@ -1,5 +1,13 @@
 # r
 
+Looks like there's a big uptick in points theft going on via shop with points on amazon.
+
+I'd have that disabled by the issuer or redeem them.
+
+Someone jacked over 1k worth from me.
+
+---
+
 https://www.aliexpress.us/item/3256813202714670.html
 
 https://www.youtube.com/shorts/t8X7yuN_K9I
