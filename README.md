@@ -1,8 +1,14 @@
 # r
 
+https://en.as.com/latest_news/no-job-no-insurance-no-health-care-and-no-regrets-the-bank-robbery-that-saved-a-north-carolina-mans-life-f202605-n/
+
 https://www.snopes.com/fact-check/man-bank-robber-medical-care/
 
 More likely than not.
+
+That's why we don't fuck around.
+
+Dumbasses for real.
 
 ---
 
