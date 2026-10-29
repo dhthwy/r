@@ -1,5 +1,7 @@
 # r
 
+https://www.youtube.com/shorts/t8X7yuN_K9I
+
 https://en.as.com/latest_news/no-job-no-insurance-no-health-care-and-no-regrets-the-bank-robbery-that-saved-a-north-carolina-mans-life-f202605-n/
 
 https://www.snopes.com/fact-check/man-bank-robber-medical-care/
