@@ -1,10 +1,26 @@
 # r
 
+I'm still getting over massive whole body migraines :)
+
+---
+
 Looks like there's a big uptick in points theft going on via shop with points on amazon.
 
 I'd have that disabled by the issuer or redeem them.
 
 Someone jacked over 1k worth from me.
+
+They don't need your amazon account.
+
+Any tom dick with your card # can add it to their throwaway amazon account. And see how many points you have too.
+
+Amazon makes fraud easy.
+
+Given all the hacks going on. Nothing is safe.
+
+Probably wasn't wise for the gov to fuck with the banks processing fees.
+
+Hurting their pocket books also hurts their customers by having less money to cover fraud.
 
 ---
 
