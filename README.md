@@ -10,6 +10,18 @@ That's why we don't fuck around.
 
 Dumbasses for real.
 
+That guy might've been alright if he had a partner. Obviously didn't.
+
+He got injured somehow to the extent rendered unable to work. Nice.
+
+Take that job that kills yo ass. Just like I once did. It fucks you up over time. Then you can't work no mo.
+
+Then you're fucked. Just like what happened to him.
+
+Now maybe he would've been alright had he built a substantial financial cushion over time.
+
+Although that takes a long time and living below the means.
+
 ```
 What makes Verone’s story remarkable is not that it happened in 2011. It is that in 2026 it still feels current.
 
