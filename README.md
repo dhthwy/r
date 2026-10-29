@@ -10,6 +10,18 @@ That's why we don't fuck around.
 
 Dumbasses for real.
 
+```
+What makes Verone’s story remarkable is not that it happened in 2011. It is that in 2026 it still feels current.
+
+Housing costs are soaring. Health insurance remains tied closely to employment for many Americans. Millions live one layoff or medical emergency away from financial collapse. Social media may now package these stories into viral memes within minutes, but the anxiety underneath them has not changed much.
+
+If anything, the public reaction to Verone today would probably be even stranger.
+
+To be honest, there was something oddly dignified about the way he handled it all. Verone never came across like a hardened criminal. He sounded more like a tired man who had run out of doors to knock on.
+
+And perhaps that is why people still remember him.
+```
+
 ---
 
 I needed to get right immediately... not be set back many times.
