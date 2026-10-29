@@ -1,5 +1,11 @@
 # r
 
+https://www.snopes.com/fact-check/man-bank-robber-medical-care/
+
+More likely than not.
+
+---
+
 I needed to get right immediately... not be set back many times.
 
 My recovery sources are drying up.
