@@ -10,7 +10,11 @@ I'd have that disabled by the issuer or redeem them.
 
 Someone jacked over 1k worth from me.
 
-They don't need your amazon account.
+They don't need your amazon account. I don't think turning points off thru amazon helps.
+
+The issuer themselves probably needs to block it.
+
+They can also do it via paypal.
 
 Any tom dick with your card # can add it to their throwaway amazon account. And see how many points you have too.
 
