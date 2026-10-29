@@ -1,5 +1,33 @@
 # r
 
+I needed to get right immediately... not be set back many times.
+
+My recovery sources are drying up.
+
+I don't have the time either.
+
+I don't even have health insurance. I'm one inch away from financial ruin.
+
+I really didn't have the time and everything to waste.
+
+If I weren't so lame, I'd probably be in much better shape right now.
+
+It would be far easier to do everything on my own time. Then it wouldn't take so much.
+
+But that doesn't work well without good communication. No one communicates these days.
+
+Looks like I'll be following thru with a plan to build my own shithole.
+
+Unless I can find a dependable roommate. Unlikely.
+
+Even if rent were super cheap, 2k still doesn't cut it.
+
+I'd have to depend on jobs that almost anyone can get.
+
+So 3k and up take home is almost impossible.
+
+---
+
 It didn't make much sense for the rich folks to screw over the little people.
 
 It may appear to help them for awhile... but over time they're screwing themselves too.
