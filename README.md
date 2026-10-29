@@ -24,6 +24,10 @@ Even if rent were super cheap, 2k still doesn't cut it.
 
 I'd have to depend on jobs that almost anyone can get.
 
+Because even if I get lucky and find something that pays decent.
+
+You can't rely on lucky jobs. They come. They go.
+
 So 3k and up take home is almost impossible.
 
 ---
