@@ -16,6 +16,8 @@ the economics of driving 60 miles for work don't make sense either.
 
 transportation isn't cheap.
 
+If I had a penny for the number of fucking times I said I do not have the time to fuck around I'd be fucking rich!
+
 ---
 
 "It seems to me to be equally plain that no business which depends for existence on paying less than living wages to its workers has any right to continue in this country. By "business" I mean the whole of commerce as well as the whole of industry; by workers I mean all workers, the white collar class as well as the men in overalls; and by living wages I mean more than a bare subsistence level-I mean the wages of decent living."
