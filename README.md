@@ -1,5 +1,23 @@
 # r
 
+As I said. My main issue is peace and space.
+
+I just need everyone else in the world to back off so I can get things straight.
+
+Cause if no one else wants to help then they shouldn't be around me. It's only created issues.
+
+Once that is accomplished then it ought to be settled, and a nice peaceful path begins.
+
+Whole lotta IFs.
+
+I totally get my attitude is shit.
+
+It's hard to have a positive ICAN attitude when everything is shit.
+
+It doesn't help someone jacked 110k points all in a single day. amazon is the best platform for fraudsters.
+
+---
+
 I'm still getting over massive whole body migraines :)
 
 ---
