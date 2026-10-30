@@ -1,5 +1,23 @@
 # r
 
+No idea what I'll be able to do.
+
+My mom will likely need to go into a nursing home within the year.
+
+she won't take of herself at all.
+
+and refuses to let anyone help. and refuses to cooperate.
+
+the job prospects around here are terrible.
+
+the job growth stats are extremely grim.
+
+the economics of driving 60 miles for work don't make sense either.
+
+transportation isn't cheap.
+
+---
+
 "It seems to me to be equally plain that no business which depends for existence on paying less than living wages to its workers has any right to continue in this country. By "business" I mean the whole of commerce as well as the whole of industry; by workers I mean all workers, the white collar class as well as the men in overalls; and by living wages I mean more than a bare subsistence level-I mean the wages of decent living."
 
 -Franklin D. Roosevelt during a statement on the National Industrial Recovery Act on June 16, 1933 he later advanced the federal minimum wage via the Fair Labor Standards Act of 1938
