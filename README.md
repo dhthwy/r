@@ -1,5 +1,14 @@
 # r
 
+"It seems to me to be equally plain that no business which depends for existence on paying less than living wages to its workers has any right to continue in this country. By "business" I mean the whole of commerce as well as the whole of industry; by workers I mean all workers, the white collar class as well as the men in overalls; and by living wages I mean more than a bare subsistence level-I mean the wages of decent living."
+
+-Franklin D. Roosevelt during a statement on the National Industrial Recovery Act on June 16, 1933 he later advanced the federal minimum wage via the Fair Labor Standards Act of 1938
+
+It was always intended to be a living wage, people have just been fed the lie that it's "for teenagers earning summer money" for so long that people forgot.
+"
+
+---
+
 As I said. My main issue is peace and space.
 
 I just need everyone else in the world to back off so I can get things straight.
