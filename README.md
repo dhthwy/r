@@ -14,7 +14,7 @@ the job growth stats are extremely grim.
 
 the economics of driving 60 miles for work don't make sense either.
 
-transportation isn't cheap.
+transportation isn't cheap and an old car won't last long putting that much mileage on it.
 
 If I had a penny for the number of fucking times I said I do not have the time to fuck around I'd be fucking rich!
 
