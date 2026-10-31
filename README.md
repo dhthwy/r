@@ -1,5 +1,15 @@
 # r
 
+Getting old does have its perks.
+
+These days I get:
+
+'Lemme get that door for ya grandpa.'
+
+'Everything ok grandpa? You need any help'
+
+---
+
 No idea what I'll be able to do.
 
 My mom will likely need to go into a nursing home within the year.
