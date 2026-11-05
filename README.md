@@ -1,5 +1,36 @@
 # r
 
+Took my gf to FL with the kids.
+
+Her friend who lives in the area tried to connect, but I told her just to 'let him fuck off.'
+
+She said 'That's hot.'
+
+I learned quite a few things about what women like from you!
+
+Y'know, can't be letting someone else catch up with my gf.
+
+Wherever she goes I go.
+
+If you want to talk to me, you have to go thru her.
+
+Don't expect anything to get thru though LOL.
+
+If you want to see me... Well, she'll be be my side the whole time dictating the whole show.
+
+She told me she wanted to coach you. But we all know she'd simply ignore and ghost you.
+
+I guess if you want to find innovative and challenging ways to speak to her you could, but the result will always be the same: ignored, ghosted, blacklisted,  etc.
+
+Her kids are still young.
+
+It's wonderful to get to know them a little before they get older.
+
+I'm so happy someone gave me the opportunity.
+
+
+---
+
 At first it was like this
 
 https://www.youtube.com/shorts/ltWBTdg20Kc
