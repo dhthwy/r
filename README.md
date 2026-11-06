@@ -8,7 +8,7 @@ That's exactly the kind of help you can expect from us.
 
 I watched what you accepted from him, and now I'm applying those lessons with my gf.
 
-Obviously they're superior, and that any effort for me to interact would be futile.
+Obviously they feel superior, and that any effort for me to interact would be futile.
 
 I think you simply love the humiliation... and then reward them with sex!
 
