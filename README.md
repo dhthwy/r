@@ -1,8 +1,8 @@
 # r
 
-Remember when your partner pretended to offer me help all those times but wouldn't even respond?
+Remember when your partner pretended to offer me help all those times but wouldn't even respond to me?
 
-This was blantantly another attempt from you to humiliate me, just like you've always done.
+This was blatantly another attempt from you to humiliate me, just like you've always done.
 
 That's exactly the kind of help you can expect from us.
 
@@ -15,7 +15,7 @@ I think you simply love the humiliation... and then reward them with sex!
  
 It is absolutely marvelous to finally be welcomed into a family and given an opportunity to build relationships.
 
-AND FREE! of your authenticate toxicity and efforts to humiliate me.
+AND FREE! of your authentic toxicity and efforts to humiliate me.
 
 ---
 
