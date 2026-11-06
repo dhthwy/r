@@ -1,5 +1,24 @@
 # r
 
+Remember when your partner pretended to offer me help all those times but wouldn't even respond?
+
+This was blantantly another attempt from you to humiliate me, just like you've always done.
+
+That's exactly the kind of help you can expect from us.
+
+I watched what you accepted from him, and now I'm applying those lessons with my gf.
+
+Obviously they're superior, and that any effort for me to interact would be futile.
+
+I think you simply love the humiliation... and then reward them with sex!
+
+ 
+It is absolutely marvelous to finally be welcomed into a family and given an opportunity to build relationships.
+
+AND FREE! of your authenticate toxicity and efforts to humiliate me.
+
+---
+
 Took my gf to FL with the kids.
 
 Her friend who lives in the area tried to connect, but I told her just to 'let him fuck off.'
