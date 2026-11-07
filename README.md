@@ -1,5 +1,11 @@
 # r
 
+she is like this
+
+https://youtu.be/YwOoyRf8bMo?is=KxKe75XGjtAaUuiS
+
+---
+
 Remember when your partner pretended to offer me help all those times but wouldn't even respond to me?
 
 This was blatantly another attempt from you to humiliate me, just like you've always done.
