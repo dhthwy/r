@@ -1,5 +1,9 @@
 # r
 
+"Adversity exposes the difference between genuine friendship and friendship that exists only when it's convenient."
+
+Thank you for showing me.
+
 No more ghosting.
 
 No more pretending.
