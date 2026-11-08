@@ -1,5 +1,14 @@
 # r
 
+"I never thought they would ever deceive me
+Don't you know when times got rough
+I was standing on my own
+I'll never let another get that close to me
+You see, I've grown a lot smarter now
+Sometimes you have to choose and then you'll see
+If your friend is true, they'll be there with you
+Through the thick and thin"
+
 https://genius.com/Tlc-what-about-your-friends-lyrics
 
 ---
