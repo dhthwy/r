@@ -10,7 +10,7 @@ No more ignoring my calls and texts.
 
 No more getting the cops called on me for trying to connect.
 
-No more of your friends making fun of me for trying to connect.
+No more of your friends belittling me for trying to connect.
 
 No more going with someone else while leaving me on my own the whole time.
 
