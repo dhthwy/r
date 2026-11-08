@@ -1,5 +1,17 @@
 # r
 
+No more ghosting.
+
+No more pretending.
+
+No more lies.
+
+No more going with someone else while leaving me on my own the whole time.
+
+My new girl doesn't do that to me because she is real and you are not.
+
+---
+
 I don't need words.
 
 For the past 3 years you showed me with your own actions.
