@@ -5,6 +5,7 @@
 "
 'Cause it's easy to tell me you love me
 Easy to say you're thinking of me
+
 Words are so easy to say
 
 Actions speak louder than words
