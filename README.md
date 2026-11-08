@@ -1,8 +1,16 @@
 # r
 
+"For who not needs shall never lack a friend,
+
+And who in want a hollow friend doth try,
+
+Directly seasons him his enemy."
+
+— William Shakespeare, Hamlet, Act III, Scene 2.
+
 "Adversity exposes the difference between genuine friendship and friendship that exists only when it's convenient."
 
-Thank you for showing me.
+Thank you for showing me. But we will never meet. Not anymore.
 
 No more ghosting.
 
