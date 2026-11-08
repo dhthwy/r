@@ -1,6 +1,12 @@
 # r
 
+I don't need words.
 
+For the past 3 years you showed me with your own actions.
+
+Not real. No problem.
+
+I put it all into my new gf.
 
 "
 'Cause it's easy to tell me you love me
