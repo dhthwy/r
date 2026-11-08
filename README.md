@@ -1,5 +1,24 @@
 # r
 
+
+
+"
+'Cause it's easy to tell me you love me
+Easy to say you're thinking of me
+Words are so easy to say
+
+Actions speak louder than words
+"
+
+"For who not needs shall never lack a friend,
+
+And who in want a hollow friend doth try,
+
+Directly seasons him his enemy."
+
+— William Shakespeare, Hamlet, Act III, Scene 2.
+
+
 "I never thought they would ever deceive me
 
 Don't you know when times got rough
