@@ -16,6 +16,8 @@ No more going with someone else while leaving me on my own the whole time.
 
 Those were acts.
 
+6 years of those acts.
+
 My new girl doesn't do that to me because she is real and you are not.
 
 Actions speak louder than words.
