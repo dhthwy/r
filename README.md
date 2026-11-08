@@ -10,6 +10,8 @@ Words are so easy to say
 Actions speak louder than words
 "
 
+---
+
 "For who not needs shall never lack a friend,
 
 And who in want a hollow friend doth try,
@@ -18,6 +20,7 @@ Directly seasons him his enemy."
 
 — William Shakespeare, Hamlet, Act III, Scene 2.
 
+---
 
 "I never thought they would ever deceive me
 
