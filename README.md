@@ -1,5 +1,9 @@
 # r
 
+https://genius.com/Tlc-what-about-your-friends-lyrics
+
+---
+
 she is like this
 
 https://youtu.be/YwOoyRf8bMo?is=KxKe75XGjtAaUuiS
