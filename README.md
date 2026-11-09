@@ -8,6 +8,12 @@ That's simply a fact years worth of your actions has shown.
 
 Easy for you. You simply perform the same actions you've been doing all of these years.
 
+That includes spending heaps of time together and heaps of time actually talking together.
+
+Which was never anything you gave me, not even a little bit.
+
+So your pretend game with words stopped working last year :)
+
 ---
 
 "For who not needs shall never lack a friend,
