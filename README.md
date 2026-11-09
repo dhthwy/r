@@ -4,6 +4,10 @@ Best thing to stick with the one you want to be around instead of playing preten
 
 It isn't fair to the other people.
 
+That's simply a fact years worth of your actions has shown.
+
+Easy for you. You simply perform the same actions you've been doing all of these years.
+
 ---
 
 "For who not needs shall never lack a friend,
