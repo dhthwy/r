@@ -1,5 +1,11 @@
 # r
 
+Best thing to stick with the one you want to be around instead of playing pretend to other people.
+
+It isn't fair to the other people.
+
+---
+
 "For who not needs shall never lack a friend,
 
 And who in want a hollow friend doth try,
