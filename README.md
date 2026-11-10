@@ -1,5 +1,33 @@
 # r
 
+No change since last year. No change the year before that even.
+
+Consider how things would be if you returned the tiniest bit of effort to respond to me or to reach back out to me.
+
+My email wasn't secret.
+
+Cause I certainly made that effort so many times.
+
+No change. Always was the same.
+
+Fun at my expense was all it really was.
+
+It was all a pretend game.
+
+When it gets real, you got people putting the blocks on.
+
+Life too short for that shit.
+
+Even if you thought it would've been different...
+
+Why would you put me at risk again if you truly cared for me?
+
+It was all nothing. All for nothing.
+
+And you risk another nothing or just as bad- completely ruined time?
+
+---
+
 https://www.youtube.com/shorts/PzHgpcOsNcA
 
 Applies to ANY kind of relationship. From business to senile neighbor.
