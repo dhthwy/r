@@ -1,5 +1,11 @@
 # r
 
+https://www.youtube.com/shorts/PzHgpcOsNcA
+
+Applies to ANY kind of relationship. From business to senile neighbor.
+
+---
+
 Best thing to stick with the one you want to be around instead of playing pretend to other people.
 
 It isn't fair to the other people.
