@@ -1,5 +1,28 @@
 # r
 
+Always feeling sick. Just like how anyone would feel just before coming with something.
+
+But I feel that way all the time. For a long time now.
+
+Probably bad news for me.
+
+Life too short to fuck around.
+
+YOu can't be there for everyone all the time,
+
+But you can be there once in awhile.
+
+Put a smile on someone.
+
+Make life pleasant for a little bit.
+
+It goes very far.
+
+Why that has always been such a big problem is beyond me.
+
+
+---
+
 No change since last year. No change the year before that even.
 
 Consider how things would be if you returned the tiniest bit of effort to respond to me or to reach back out to me.
