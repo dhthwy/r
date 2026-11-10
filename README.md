@@ -1,5 +1,15 @@
 # r
 
+I'm nice to anyone who I believe is actually making a real effort to be a decent person no matter who it is.
+
+I don't play waste of time games.
+
+Life too short for that.
+
+World would've been a much better place if everyone gave just a little.
+
+---
+
 Always feeling sick. Just like how anyone would feel just before coming with something.
 
 But I feel that way all the time. For a long time now.
