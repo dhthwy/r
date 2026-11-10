@@ -26,6 +26,10 @@ It was all nothing. All for nothing.
 
 And you risk another nothing or just as bad- completely ruined time?
 
+And I'm the only one you treated that way.
+
+You literally make me sick. All for nothing, risk nothing to satisfy someone else for the 100000th time.
+
 ---
 
 https://www.youtube.com/shorts/PzHgpcOsNcA
