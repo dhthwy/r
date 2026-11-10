@@ -32,6 +32,10 @@ You literally make me sick.
 
 All for nothing, risk another nothing to satisfy someone else for the 100000th time.
 
+Way to make someone feel like a nothing.
+
+You still haven't figured out how to put yourself in others shoes. That makes you a shit leader.
+
 ---
 
 https://www.youtube.com/shorts/PzHgpcOsNcA
