@@ -5,7 +5,7 @@
 
 I had to do some engine maintanance. Big one.
 
-You see that black thingy on the right wedged against that block of wood?
+You see that black thingy on the left wedged against that block of wood?
 
 That's blocking the engine from being moved so I can put the engine mount back on.
 
