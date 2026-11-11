@@ -1,5 +1,23 @@
 # r
 
+<img width="480" height="640" alt="IMG_0641" src="https://github.com/user-attachments/assets/71a14241-6a6c-4c5b-b585-c260f5456a23" />
+
+
+I had to do some engine maintanance. Big one.
+
+You see that black thingy on the right wedged against that block of wood?
+
+That's blocking the engine from being moved so I can put the engine mount back on.
+
+Cause that block of wood isn't seated correctly on that black thingy on the right.
+
+That's super sweet.
+
+Super dirty too.
+
+---
+
+
 I'm nice to anyone who I believe is actually making a real effort to be a decent person no matter who it is.
 
 I don't play waste of time games.
