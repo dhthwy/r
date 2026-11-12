@@ -1,5 +1,32 @@
 # r
 
+I just spent $50 for a $5 piece of hardware.
+
+I give it 50/50 that my car runs without issues.
+
+Front main seal is a serious repair.
+
+I had to pay someone to get the timing belt on.
+
+I could do all the work except put the belt on the last pulley.
+
+Cause I'm too weak to stretch a thick ass belt.
+
+Looks like same thing with the accessory belt.
+
+
+<img width="480" height="640" alt="IMG_0626" src="https://github.com/user-attachments/assets/e6ecb00b-fa15-471b-8d24-7383cc249223" />
+
+<img width="480" height="640" alt="IMG_0630" src="https://github.com/user-attachments/assets/a392cfb5-e13c-4962-ad2e-166e0a968ada" />
+
+
+I cleaned it up real good tho!
+
+That seal holds in the car's blood so it's gotta be installed about perfect, flush and evenly seated all around.
+
+
+---
+
 <img width="480" height="640" alt="IMG_0641" src="https://github.com/user-attachments/assets/71a14241-6a6c-4c5b-b585-c260f5456a23" />
 
 
