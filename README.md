@@ -1,5 +1,31 @@
 # r
 
+So afterwords I heard some scraping when moving forward, and periodic when braking.
+
+Got out. Jacked the car up. Spun the tire by hand. No noise.
+
+But it wobbled.
+
+Oops, I forgot to torque the lug nuts down.
+
+I hit with an impact wrench, as many mechanics do, but that can leave them loose.
+
+Drive it like that and your tire will come off.
+
+Always double check the lug nuts after service.
+
+I had new tires installed a year ago - and this upper end shop I took it to didn't tighten the tire's lug nuts all the way.
+
+I suppose you can drive it until the wheel comes off.
+
+Get into a wreck and then sue them.
+
+Maybe some people hope for that.
+
+Not me tho.
+
+---
+
 Seems my repair was a success.
 
 Busted my knuckles a few times slipping off high torque fastener and slamming into metal :D
