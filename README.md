@@ -1,5 +1,11 @@
 # r
 
+Seems my repair was a success.
+
+Busted my knuckles a few times slipping off high torque fastener and slamming into metal :D
+
+---
+
 I just spent $50 for a $5 piece of hardware.
 
 I give it 50/50 that my car runs without issues.
