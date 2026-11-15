@@ -1,5 +1,17 @@
 # r
 
+Actually I'd rather they just take what they've been taking for themselves.
+
+I mean, that's fine with me.
+
+Especially since I don't even know whether I even can now.
+
+The problem is that I don't have anything else.
+
+No form of life can work without communication.
+
+---
+
 So afterwords I heard some scraping when moving forward, and periodic when braking.
 
 Got out. Jacked the car up. Spun the tire by hand. No noise.
