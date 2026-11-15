@@ -1,5 +1,13 @@
 # r
 
+I'm less cranky when I'm able to be productive with something.
+
+I'd be super happy if I had a good job.
+
+Productive and getting paid for it too is a wonderful thing.
+
+---
+
 Actually I'd rather they just take what they've been taking for themselves.
 
 I mean, that's fine with me.
