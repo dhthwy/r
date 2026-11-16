@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/watch?v=uRcuAYQGDSA
+
+---
+
 I'm less cranky when I'm able to be productive with something even when I'm doing it when I feel like I'm catching the flu.
 
 I'd be super happy if I had a good job.
