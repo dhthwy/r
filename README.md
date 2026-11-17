@@ -2,6 +2,8 @@
 
 Now Apple is down. haha.
 
+This is what happens when you fire human employees and let AI takeover.
+
 ---
 
 Happy holidays though.
