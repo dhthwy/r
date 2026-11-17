@@ -1,5 +1,15 @@
 # r
 
+Happy holidays though.
+
+Someone asked my mom who I am. She didn't know.
+
+So they said 'That's your son.'
+
+She replied 'I didn't give birth to that.'
+
+---
+
 https://www.youtube.com/watch?v=uRcuAYQGDSA
 
 ---
