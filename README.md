@@ -1,5 +1,9 @@
 # r
 
+Now Apple is down. haha.
+
+---
+
 Happy holidays though.
 
 Someone asked my mom who I am. She didn't know.
