@@ -1,5 +1,19 @@
 # r
 
+https://www.youtube.com/watch?v=bmor-XEbSU8
+
+People who walk around here don't do it for long.
+
+It's cause they get dead or mangled.
+
+Knew a few people that tried.
+
+That includes bicycle too.
+
+Bad place to be when car's cost 50k.
+
+---
+
 Now Apple is down. haha.
 
 This is what happens when you fire human employees and let AI takeover.
