@@ -1,5 +1,19 @@
 # r
 
+https://mashable.com/tech/microsoft-ceo-satya-nadella-layoffs
+
+It was pretty bad before AI.
+
+Hey will all you 60k people quit please?
+
+We only need people who will manage AI agents.
+
+Factory managers. Where the workers are bots.
+
+Yes AI is is still coming for jobs. Software engineers first.
+
+---
+
 Until my housing situation is resolved I'm a dead fish.
 
 When you might be living in a hotel soon - that's one small step away from sleeping behind a dumpster.
