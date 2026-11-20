@@ -1,5 +1,13 @@
 # r
 
+Until my housing situation is resolved I'm a dead fish.
+
+When you might be living in a hotel soon - that's one small step away from sleeping behind a dumpster.
+
+It would've been better if I was better when things were better.
+
+---
+
 https://www.youtube.com/shorts/0wil24tB9UU
 
 https://www.youtube.com/watch?v=bmor-XEbSU8
