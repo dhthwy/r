@@ -1,5 +1,9 @@
 # r
 
+You'll be fine regardless of what happens to me.
+
+---
+
 https://mashable.com/tech/microsoft-ceo-satya-nadella-layoffs
 
 It was pretty bad before AI.
