@@ -2,6 +2,8 @@
 
 You'll be fine regardless of what happens to me.
 
+You're not alone. I am.
+
 ---
 
 https://mashable.com/tech/microsoft-ceo-satya-nadella-layoffs
