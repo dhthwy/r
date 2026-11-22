@@ -1,5 +1,9 @@
 # r
 
+https://www.youtube.com/shorts/H6l-5X9Jfik
+
+---
+
 You'll be fine regardless of what happens to me.
 
 You're not alone. I am.
