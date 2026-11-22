@@ -1,5 +1,15 @@
 # r
 
+As I said.
+
+It's all good anyway.
+
+Simply not looking good for me at all.
+
+Paying the piper.
+
+---
+
 https://www.youtube.com/shorts/H6l-5X9Jfik
 
 ---
