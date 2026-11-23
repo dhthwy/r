@@ -16,6 +16,12 @@ Only one of them could even call for emergency help, and without me, they'd be d
 
 And housing extremely unstable, which at the very least is likely to deplete my savings in the next 2-3 months.
 
+Always feel decimated. Completely decimated.
+
+Too much time alone.
+
+Super nice.
+
 ---
 
 As I said.
