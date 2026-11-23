@@ -1,5 +1,27 @@
 # r
 
+It might've taken me years but yeah, I might've been able to get a NOC job or something similar in IT by now.
+
+Certs typically suck and they aren't cheap. They aren't easy either.
+
+The sane proper way to obtain them is to work at the job first then they push you into getting your certs to prove you learned and know your work.
+
+They may only pay 60k, but it's way better than 25k.
+
+Unfuckingbelievable most jobs still pay less than 30k a yr.
+
+Bet I would've done better rolling the dice investing.
+
+But no time anymore.
+
+I'll feel better with something.
+
+Even if I have to live in a damn car.
+
+Why do people even bother with CNA? It doesn't pay jack for all the training and work you have to do.
+
+---
+
 'Don't sell yourself short,' they say.
 
 Of course.
