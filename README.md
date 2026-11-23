@@ -1,5 +1,23 @@
 # r
 
+'Don't sell yourself short,' they say.
+
+Of course.
+
+Having one person on my side to help me thru things would make all the difference.
+
+It's a give n take thing. I wouldn't ever want to pester someone whenever I needed something.
+
+Being alone all the time on the other hand is super shitty.
+
+Just being able to work with one super demented, and the other demented and immobile makes it damn near impossible.
+
+Only one of them could even call for emergency help, and without me, they'd be doing it at least once a week.
+
+And housing extremely unstable, which at the very least is likely to deplete my savings in the next 2-3 months.
+
+---
+
 As I said.
 
 It's all good anyway.
