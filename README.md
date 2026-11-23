@@ -1,5 +1,25 @@
 # r
 
+Ohh, I know why people get their CNA.
+
+It's cause hardly anyone else is actually hiring.
+
+Anything remotely close to $20/hr and up has a 1000 applicants.
+
+Unless you want to work hard labor on some assembly line until your hands fall off and become disabled.
+
+Or crap fast food work with crap hours.
+
+So that's why.
+
+Have a CNA. You'll probably be ok with employment. You'll just be poor at 30k/yr.
+
+And may have to drive around a lot.
+
+Wages remained the same. Costs for everything else doubled and tripled.
+
+---
+
 It might've taken me years but yeah, I might've been able to get a NOC job or something similar in IT by now.
 
 Certs typically suck and they aren't cheap. They aren't easy either.
