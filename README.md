@@ -6,7 +6,7 @@ It's cause hardly anyone else is actually hiring.
 
 Anything remotely close to $20/hr and up has a 1000 applicants.
 
-Unless you want to work hard labor on some assembly line until your hands fall off and become disabled.
+Unless you want to work hard labor on some assembly line until your hands fall off and become disabled. Still crap wage.
 
 Or crap fast food work with crap hours.
 
