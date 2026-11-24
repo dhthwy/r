@@ -1,5 +1,17 @@
 # r
 
+Consider that transportation, at least in these fucked up areas, is the #1 asset to keep someone out of homelessness or at least provide some essential shelter.
+
+There's some person begging for help right now for help with a major repair.
+
+I sympathize but he's obviously way underestimating the job, and I have my own housing, etc issues. Can't afford possible theft or damage of my own tools helping strangers.
+
+I can't end up in that position. It'd cost at least $1.5k for a shop to do that kind of work.
+
+No one has any money saved cause COL and wages are ridiculous.
+
+---
+
 https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
 
 That's why I don't like working on cars. Happens all the time.
