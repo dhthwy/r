@@ -6,7 +6,7 @@ Even for a cheap car, it's about 3k dolla bills per 10k miles.
 
 Many people have to put that many miles on their car just to get to work and back.
 
-Make 40k? Nope, not when the cost to and from work is 3k.
+Make 40k? Nope, not when the cost to and from work is 3k plus fuel.
 
 You can expect the first 100k to be relatively trouble free miles in most cases aside for routine brake maintenance and minor things which still may add up to 1k to 2k. In the rust belt, cost may be more.
 
