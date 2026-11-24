@@ -1,5 +1,12 @@
 # r
 
+Probably gonna need one of these too
+
+<img width="1319" height="502" alt="Screenshot_20261123_223056" src="https://github.com/user-attachments/assets/b12deac8-4b5d-4b5f-80f8-600250a96bfa" />
+
+
+---
+
 Ohh, I know why people get their CNA.
 
 It's cause hardly anyone else is actually hiring.
