@@ -1,6 +1,6 @@
 # r
 
-Consider that transportation, at least in these fucked up areas, is the #1 asset to keep someone out of homelessness or at least provide some essential shelter.
+Consider that transportation, at least in these fucked up areas, is the #1 asset to keep someone out of homelessness or at least provide or reach some essential shelter.
 
 There's some person begging for help right now for help with a major repair.
 
