@@ -1,5 +1,18 @@
 # r
 
+https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
+
+That's why I don't like working on cars. Happens all the time.
+
+Put your life at risk whenever you do an oil change. Have a quicklube do it? Put your car at risk. Mostly kids, inept, or those forced to rush do that sort of work hence the increased odds of botching it. 
+
+I put all kinds of supports under mine whenever I'm under it but backup supports only have a _chance_ of saving the vehicle from falling since there's no way to know how the backup supports will handle a sudden load transfer.
+
+Having to depend on transportation just to work is awful. Cars are expensive. Hiring a shop for every little thing can easily cost thousands a year and that's for a cheap car.
+
+
+---
+
 https://www.youtube.com/watch?v=fwEiMOmzUh4 - Good movie.
 
 ---
