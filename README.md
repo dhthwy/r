@@ -1,5 +1,9 @@
 # r
 
+Be grateful for what you have.
+
+---
+
 AMAZON responded to my FCRA request
 
 Apparently my CC # was added to several acconts.
