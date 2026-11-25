@@ -1,5 +1,21 @@
 # r
 
+AMAZON responded to my FCRA request
+
+Apparently my CC # was added to several acconts.
+
+Not a single one used my billing name or address.
+
+So amazon just lets people use anyone's CC without question. YOu can probably put santa claus for the name and northpole for the billing address and they'd accept it.
+
+The shipping addresses are different still. Those are dem thieves buying apple products and amazon fire tv sticks with my points.
+
+You don't wanna ever end up in a situation like mine.
+
+Spoiled brats like you would slit their wrists on day #1 in my shoes.
+
+---
+
 Alot of these people think they can do Uber, Doordash etc. But they fail to realize that their car won't last long before major expenses.
 
 Even for a cheap car, it's about 3k dolla bills per 10k miles.
