@@ -4,7 +4,9 @@ Obviously things would be far better for me if I wasn't so f'd up and earned mor
 
 I won't up like these other people who left themselves with nothing and wound up homeless because they couldn't put $1.5k toward having their car fixed.
 
-I'd rather submit myself to jail than be on the these streets with nothing.
+I'd rather submit myself to incarcartion than be on the these streets with nothing. By then, no more doubt that life is ruined.
+
+This aint CT. They don't call it the dirty south for no reason.
 
 ---
 
