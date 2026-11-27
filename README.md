@@ -1,5 +1,19 @@
 # r
 
+Hard no = same game as before.
+
+Maybe = tangible changes.
+
+Don't care what anyone says.
+
+Multiple rounds of prior damage whether the claim is intentional or not makes more of the same a no.
+
+Regardless of what anyone says.
+
+Don't give a fuck what anyone says.
+
+---
+
 Obviously things would be far better for me if I wasn't so f'd up and earned more than a trickle.
 
 I won't up like these other people who left themselves with nothing and wound up homeless because they couldn't put $1.5k toward having their car fixed.
