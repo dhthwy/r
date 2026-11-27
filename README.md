@@ -1,5 +1,11 @@
 # r
 
+https://www.youtube.com/watch?v=YUIrsoVJN48
+
+I mean, people are doing some innovative things with AI.
+
+---
+
 <img width="400" height="400" alt="turkey" src="https://github.com/user-attachments/assets/2bcdca8f-1cd9-4eb0-bd39-7b37f490ff82" />
 
 
