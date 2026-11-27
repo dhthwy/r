@@ -1,5 +1,13 @@
 # r
 
+Obviously things would be far better for me if I wasn't so f'd up and earned more than a trickle.
+
+I won't up like these other people who left themselves with nothing and wound up homeless because they couldn't put $1.5k toward having their car fixed.
+
+I'd rather submit myself to jail than be on the these streets with nothing.
+
+---
+
 The phrase of the year is: I don't know.
 
 My own well being won't be more known for some time still.
