@@ -1,5 +1,29 @@
 # r
 
+The phrase of the year is: I don't know.
+
+My own well being won't be more known for some time still.
+
+Assuming it isn't so bad then I could do more things and possibly be a yesser.
+
+Having help is understandable.
+
+But help which causes issues for others isn't.
+
+I'm not repeating. I'm not even going to put myself in the position to make that even possible.
+
+because I'm unable to take on further unnecessary risk.
+
+I've lost too much already and I'm only far worse off for it.
+
+So it depends.
+
+And when someone is unable to plan for their future it costs them more. Sometimes way more.
+
+This means less for everyone else. It means less quality too.
+
+---
+
 https://www.youtube.com/watch?v=YUIrsoVJN48
 
 I mean, people are doing some innovative things with AI.
