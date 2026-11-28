@@ -1,5 +1,25 @@
 # r
 
+If I had one dependable roommate or a partner then I'd be ok.
+
+But I am all alone. Not a single person to even talk to.
+
+I don't recall the last actual real convo I've had.
+
+Got plenty of snakes, thieves, and people trying to take advantage of a crap situation already.
+
+I am for damn sure not playing that game elsewhere.
+
+No more people subjecting me to unfair competition where they capitalize on their monopoly and leave me with nothing or next to it.
+
+I will bounce immediately.
+
+It really isn't a good place for me.
+
+It's a place for everything else.
+
+---
+
 The only people I have are enemies trying to incarcerate me.
 
 And my parents who are both increasingly incapcable of taking care of themselves in any shape or form.
