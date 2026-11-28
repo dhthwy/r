@@ -1,5 +1,15 @@
 # r
 
+That's their thing.
+
+You didn't leave me with a thing.
+
+You didn't leave me with any way to even develop a thing.
+
+So there you go.
+
+---
+
 I've already set my boundaries.
 
 You know damn well I have cause.
