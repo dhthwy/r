@@ -1,5 +1,17 @@
 # r
 
+I've already set my boundaries.
+
+You know damn well I have cause.
+
+Either accept it or not.
+
+No games or tricks.
+
+It took two. Not one. To do all of that to me.
+
+---
+
 If I had one dependable roommate or a partner then I'd be ok.
 
 But I am all alone. Not a single person to even talk to.
