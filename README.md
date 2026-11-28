@@ -18,6 +18,14 @@ It really isn't a good place for me.
 
 It's a place for everything else.
 
+Ruined my mental health already.
+
+Wasted already.
+
+Nuff of that.
+
+Infact I assume it'll be just as it was.
+
 ---
 
 The only people I have are enemies trying to incarcerate me.
