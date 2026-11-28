@@ -8,7 +8,7 @@ Either accept it or not.
 
 No games or tricks.
 
-It took two. Not one. To do all of that to me.
+It took two. Not one. To do me that way.
 
 ---
 
