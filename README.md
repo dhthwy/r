@@ -20,7 +20,7 @@ It's a place for everything else.
 
 Ruined my mental health already.
 
-Wasted already.
+Wasted what I could've used for better things already.
 
 Nuff of that.
 
