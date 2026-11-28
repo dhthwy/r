@@ -1,5 +1,29 @@
 # r
 
+The only people I have are enemies trying to incarcerate me.
+
+And my parents who are both increasingly incapcable of taking care of themselves in any shape or form.
+
+I may have to buy medical equipment just to get one of them up and down the stairs. That's not cheap.
+
+Apparently the alternative is a 30 foot ramp. Got a mobile scooter. Can't even use it.
+
+They didn't set aside money for this.
+
+Of course, there is always nursing home.
+
+But housing is precarious even without considering them.
+
+Changes.
+
+Assuming I'm not completely screwed up...
+
+I can still contribute a half a hand.
+
+There's really nothing left to my mental health.
+
+---
+
 Hard no = same game as before.
 
 Maybe = tangible changes.
