@@ -10,7 +10,7 @@ Got plenty of snakes, thieves, and people trying to take advantage of a crap sit
 
 I am for damn sure not playing that game elsewhere.
 
-No more people subjecting me to unfair competition where they capitalize on their monopoly and leave me with nothing or next to it.
+No more people subjecting me to unfair competition where they capitalize on their monopoly from their insider trading and leave me with nothing or next to it.
 
 I will bounce immediately.
 
